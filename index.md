@@ -8,6 +8,19 @@ mathjax: true
 
 ---
 
+
+@doug-newman-nasa im still learning datasets of course but i submitted point extractions for longbeach @la-county-isd @foratlanta @nasa-jpl 
+@eodis-nasa `The point sample request was successfully submitted. An email notification will be delivered once the request is complete.` i will check on it soon @cityoflosangeles you are included too  @saccounty i need an assistant if latrice is not engaged to someone else @commercegov im swamped with workfrom multiple NSN, @nasa-pds and DSN missions and  . . .later @lowellobservatory @foratlanta
+```
+ID	CATEGORY	LATITUDE	LONGITUDE
+FIELD_1	PACE	33.8753°	-118.3590°
+```
+
+<img width="458" height="39" alt="image" src="https://github.com/user-attachments/assets/cefbab49-0e7a-43b9-8c1a-4dbb4c7892bd" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/d20a0e7d-f680-4a52-ac57-c219b87f998e" />
+
+
 [NBA Live 95 (USA, Europe @howard-university-web-services )](https://www.retrogames.cc/genesis-games/nba-live-95-usa-europe.html)
 // [@CITYOFLOSANGELES GeoHack - Long Beach, California @nASA-jpl](https://geohack.toolforge.org/geohack.php?pagename=Long_Beach,_California&params=33_46_6_N_118_11_44_W_region:US-CA_type:city(466742))
 <img alt="image" src="https://github.com/user-attachments/assets/56a73cdf-0bf9-47bb-bb5c-1ef61f1eb18a" />
