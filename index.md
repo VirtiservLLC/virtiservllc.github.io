@@ -3,7 +3,15 @@ layout: default
 mathjax: true
 ---
 
+
+[Janet Jackson - Rhythm Nation](https://youtu.be/OAwaNWGLM0c?si=wkFxdO7bnGMZzv3G)
+
+---
+
 [NBA Live 95 (USA, Europe @howard-university-web-services )](https://www.retrogames.cc/genesis-games/nba-live-95-usa-europe.html)
+
+<img alt="image" src="https://github.com/user-attachments/assets/56a73cdf-0bf9-47bb-bb5c-1ef61f1eb18a" />
+
 [@cityoflosangeles https://archive.org/download/longbeach_202605/DOD_107547647-1280x720-2765k.mp4 @nasa-jpl @nasa-pds @USGS @WHitEHOUSE @vlackgirlscode](https://archive.org/download/longbeach_202605/DOD_107547647-1280x720-2765k.mp4)
 [@blackgirlscode :  (World, TEG2/VER.C1, set 1)](https://www.retrogames.cc/arcade-games/tekken-tag-tournament-world-teg2-ver-c1-set-1.html) Trice [@blackgirlscode oakland for erika and coralan cardi baby - RealBoutFatalFury2](https://archive.org/download/longbeach_202605/RealBoutFatalFury2.mp4) 
 [@cia /SoulCaliburRecording2026-09-26%20145409.mp4](https://archive.org/download/longbeach_202605/SoulCaliburRecording2026-09-26%20145409.mp4) // [@blackgirlscode @nasa-jpl SonictheHedgehog2.mp4](https://archive.org/download/longbeach_202605/SonictheHedgehog2.mp4)
