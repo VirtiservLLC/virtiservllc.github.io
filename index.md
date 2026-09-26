@@ -4,7 +4,7 @@ mathjax: true
 ---
 
 
-[Janet Jackson - Rhythm Nation](https://youtu.be/OAwaNWGLM0c?si=wkFxdO7bnGMZzv3G)
+[Janet Jackson - Rhythm Nation](https://youtu.be/OAwaNWGLM0c?si=wkFxdO7bnGMZzv3G) // [Janet Jackson - The Pleasure Principle](https://youtu.be/Q-gu1KETjVY)
 
 ---
 
