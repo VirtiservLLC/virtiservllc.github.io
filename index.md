@@ -3,12 +3,26 @@ layout: default
 mathjax: true
 ---
 
+
+
+### Dear Rep Karen,
+I was in the Meyer goldwyn branc and found these pages in the County Municipal ... Of your powers [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349)
+
+
+[MuniCode.Com](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid
+
+![Mayor is Chief Executive](https://pbs.twimg.com/media/GGk_-sAbEAAzy6b?format=png&name=900x900)
+![Mayoral Duties](https://pbs.twimg.com/media/GGlAAJXacAAKuq7?format=jpg&name=medium)
+![mayor](https://pbs.twimg.com/media/GGk_9YfbcAAfHg_?format=jpg&name=medium)
+
+
 ## Atlanta[!](https://youtu.be/_nsDBUyLWcU)
 _Martin Luther King Jr. came of age in one of the fastest growing cities in the United States._ - [Changing Atlanta](https://science.nasa.gov/earth/earth-observatory/changing-atlanta-147806/)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/88vvGueWlrY?si=terP5Aj-Jylxu9Hg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-[@deptofwar @cityofsantamonica @blackgirlscode @whitehouse @nasa 2600.com/node/35631 @howard-university-web-services](https://www.2600.com/node/35631)
+[@deptofwar @cityofsantamonica @blackgirlscode @whitehouse @nasa 2600.com/node/35631 @howard-university-web-services](https://www.2600.com/node/35631) [MuniCode.Com @deptofwar fwd to Karen bAss @whitehouse @cityoflosangeles](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb]() documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid
+
 
 [A-Town Players - Wassup Wassup ( Bankhead Bounce ) Atlanta Classic 1995](https://youtu.be/J90bUNuJ20k) // [Dance411 @disney @nasa-jpl](https://youtu.be/P1K-uC-ZQso?is=8LQ8ZHTm8IU1Dzr2) +++ [Whatz Up, Whatz Up (A-Town T.V. Track) - _Playa Poncho_](https://www.youtube.com/watch?v=T9sMDuSfUSQ) & [Future - Incredible (HNDRXX)](https://youtu.be/VCaxeHxmZws?si=vyOnVn070tNvdPG1) // [Janet Jackson - Rhythm Nation](https://youtu.be/OAwaNWGLM0c?si=wkFxdO7bnGMZzv3G) // [Janet Jackson - The Pleasure Principle](https://youtu.be/Q-gu1KETjVY) // [T.I. - WE ON](https://youtu.be/e7XPm66h10g?si=wn_B_RQQO110ntiC)
 
