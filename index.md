@@ -3,6 +3,9 @@ layout: default
 mathjax: true
 ---
 
+![   @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard  imag mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01987/ids/edr/browse/fcam/FLF_1987_0843346871_738ECM_N0910970FHAZ00911_13_195J02_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01987/ids/edr/browse/fcam/FLF_1987_0843346871_738ECM_N0910970FHAZ00911_13_195J02_1200.jpg)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/4d247455-0f54-49ac-bb3a-0e92626d1235" />
 
 ## Doctor Slain In Bed, LA Orb Sighting & Texas AC Ruling
 @nasa-jpl @cityoflosangeles im going to check on thie la orb sighting @USNAVY its in my job desc @LA-county-isd [`WATCH` youtu.be/cT6WddtiLaQ](https://youtu.be/cT6WddtiLaQ) /// 
