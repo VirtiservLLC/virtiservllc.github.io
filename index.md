@@ -3,6 +3,9 @@ layout: default
 mathjax: true
 ---
 
+<img   alt=" @nasa-jpl @emit-sdf @asfadmin @la-county-isd 528899468-0594adca-ec4c-4aca-84ff-8876a79c4766" src="https://github.com/user-attachments/assets/7cd25089-d18c-4155-8cc6-f1e041c29d55" />
+
+
 ## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
 [`WATCH` - youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp](https://youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp)
 
@@ -11,7 +14,15 @@ mathjax: true
 
 [Is He LYING? Body Language Analyst Reacts to Nolan Wells' Friend's Story! (Warren Hudson) @nasa](https://youtu.be/TmlpJkyaOFQ?si=FKRaKTTjW2iPnUF_)
 
+[ @usgs @nasa @NiHGOV rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+
+<img   alt="  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard Screenshot 2026-09-27 3 38 48 PM" src="https://github.com/user-attachments/assets/baf299f6-a269-4a6b-a44e-7bd36f02373b" />
+
 [@blackgirlscode tell normani I tried bubblegumfm.github.io/](https://bubblegumfm.github.io/) 
+<img alt="Screenshot 2026-09-27 3 31 43 PM" src="https://github.com/user-attachments/assets/24c41d73-af22-419a-a99a-e99759b489e5" />
+
+[@nasa-jpl check out the COVID tweets I was here man! rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
 
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">@NASAJPL @EuropaClipper https://t.co/ISVkHYHn4b do u guys knw #Ms_LiLi_BossE?@Beyonce gone jack her title (#Bossy (-(-_(-_-)_-)-) #Everyoneknows) anyway these r some good #LosAngelesLocalPoliticsContacts @NASASpaceflight 
 @LiliBosse1 @HildaSolis @SenBillNelson @RepKarenBass @skyepatrickLIB1 #defineMayor https://t.co/IKcOta7Dmz</p>&mdash; BubbleGumPop (@BubbleGumPop510) <a href="https://x.com/BubbleGumPop510/status/1759007658462548349?ref_src=twsrc%5Etfw">February 18, 2024</a></blockquote>
