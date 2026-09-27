@@ -2,13 +2,10 @@
 layout: default
 mathjax: true
 ---
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">@NASAJPL @EuropaClipper https://t.co/ISVkHYHn4b do u guys knw #Ms_LiLi_BossE?@Beyonce gone jack her title (#Bossy (-(-_(-_-)_-)-) #Everyoneknows) anyway these r some good #LosAngelesLocalPoliticsContacts @NASASpaceflight 
+@LiliBosse1 @HildaSolis @SenBillNelson @RepKarenBass @skyepatrickLIB1 #defineMayor https://t.co/IKcOta7Dmz</p>&mdash; BubbleGumPop (@BubbleGumPop510) <a href="https://x.com/BubbleGumPop510/status/1759007658462548349?ref_src=twsrc%5Etfw">February 18, 2024</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
 
-[@blackgirlscode @nasa-pds @howard-university-web-services](https://www.retrogames.onl/2017/08/road-rash-3do.html)
-<img alt="image @blackgirlscode @howard-university-web-services @nasa-pds](https://www.retrogames.onl/2017/08/road-rash-3do.html " src="https://github.com/user-attachments/assets/c05e27ea-0d3d-433d-89db-76d262c2088b" />
-
-
-[`Play`  retrogames.onl/2017/08/`road-rash-3do`](https://www.retrogames.onl/2017/08/road-rash-3do.html)
-![@howard-university-web-services @nasa-pds how is Lana j Harris doing ? I found a photo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ92JEQaJxZbicUv8jAyv13vKH9h3BRFYT_VabDf2x8_CJWesEK37YJbnP3Oa5Phv1-1tzIndbvbz2SUq2asqs_M80uw8Mqjn4rauyZxo7Yu7M_btAPSOO9j2wOhyphenhyphena4B5lMjHP6JAbUlI/s0/RoadRash64.jpg) 
 
 ### Dear Rep Karen,
 I was in the Meyer goldwyn branc and found these pages in the County Municipal ... Of your powers [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349)
@@ -19,6 +16,14 @@ I was in the Meyer goldwyn branc and found these pages in the County Municipal .
 ![Mayor is Chief Executive -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_-sAbEAAzy6b?format=png&name=900x900)
 ![Mayoral Duties -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGlAAJXacAAKuq7?format=jpg&name=medium)
 ![mayor -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_9YfbcAAfHg_?format=jpg&name=medium)
+
+[@blackgirlscode @nasa-pds @howard-university-web-services](https://www.retrogames.onl/2017/08/road-rash-3do.html)
+<img alt="image @blackgirlscode @howard-university-web-services @nasa-pds](https://www.retrogames.onl/2017/08/road-rash-3do.html " src="https://github.com/user-attachments/assets/c05e27ea-0d3d-433d-89db-76d262c2088b" />
+
+
+[`Play`  retrogames.onl/2017/08/`road-rash-3do`](https://www.retrogames.onl/2017/08/road-rash-3do.html)
+![@howard-university-web-services @nasa-pds how is Lana j Harris doing ? I found a photo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ92JEQaJxZbicUv8jAyv13vKH9h3BRFYT_VabDf2x8_CJWesEK37YJbnP3Oa5Phv1-1tzIndbvbz2SUq2asqs_M80uw8Mqjn4rauyZxo7Yu7M_btAPSOO9j2wOhyphenhyphena4B5lMjHP6JAbUlI/s0/RoadRash64.jpg) 
+
 
 
 ## Atlanta[!](https://youtu.be/_nsDBUyLWcU)
