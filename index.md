@@ -3,6 +3,10 @@ layout: default
 mathjax: true
 ---
 
+[@blackgirlscode @nasa-pds @howard-university-web-services](https://www.retrogames.onl/2017/08/road-rash-3do.html)
+<img alt="image @blackgirlscode @howard-university-web-services @nasa-pds](https://www.retrogames.onl/2017/08/road-rash-3do.html " src="https://github.com/user-attachments/assets/c05e27ea-0d3d-433d-89db-76d262c2088b" />
+
+
 [`Play`  retrogames.onl/2017/08/`road-rash-3do`](https://www.retrogames.onl/2017/08/road-rash-3do.html)
 ![@howard-university-web-services @nasa-pds how is Lana j Harris doing ? I found a photo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ92JEQaJxZbicUv8jAyv13vKH9h3BRFYT_VabDf2x8_CJWesEK37YJbnP3Oa5Phv1-1tzIndbvbz2SUq2asqs_M80uw8Mqjn4rauyZxo7Yu7M_btAPSOO9j2wOhyphenhyphena4B5lMjHP6JAbUlI/s0/RoadRash64.jpg) 
 
