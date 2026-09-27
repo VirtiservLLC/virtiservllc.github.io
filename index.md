@@ -3,6 +3,13 @@ layout: default
 mathjax: true
 ---
 
+## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
+[`WATCH` - youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp](https://youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp)
+
+<img alt="image  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard" src="https://github.com/user-attachments/assets/e95e97c8-158c-492c-ae98-d37563d5a4df" />
+
+
+[Is He LYING? Body Language Analyst Reacts to Nolan Wells' Friend's Story! (Warren Hudson) @nasa](https://youtu.be/TmlpJkyaOFQ?si=FKRaKTTjW2iPnUF_)
 
 [@blackgirlscode tell normani I tried bubblegumfm.github.io/](https://bubblegumfm.github.io/) 
 
