@@ -2,6 +2,10 @@
 layout: default
 mathjax: true
 ---
+
+
+[@blackgirlscode tell normani I tried bubblegumfm.github.io/](https://bubblegumfm.github.io/) 
+
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">@NASAJPL @EuropaClipper https://t.co/ISVkHYHn4b do u guys knw #Ms_LiLi_BossE?@Beyonce gone jack her title (#Bossy (-(-_(-_-)_-)-) #Everyoneknows) anyway these r some good #LosAngelesLocalPoliticsContacts @NASASpaceflight 
 @LiliBosse1 @HildaSolis @SenBillNelson @RepKarenBass @skyepatrickLIB1 #defineMayor https://t.co/IKcOta7Dmz</p>&mdash; BubbleGumPop (@BubbleGumPop510) <a href="https://x.com/BubbleGumPop510/status/1759007658462548349?ref_src=twsrc%5Etfw">February 18, 2024</a></blockquote>
 <script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
