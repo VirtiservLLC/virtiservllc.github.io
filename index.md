@@ -4,9 +4,10 @@ mathjax: true
 ---
 
 
-![@whitehouse @nasa-pds @caltech @ASU @blackgirlscode ](https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/ESP/ORB_093000_093099/ESP_093049_1520_ESP_093550_1520/ESP_093049_1520_ESP_093550_1520_RED.browse.png)
 
-<img   alt=" @nasa-jpl @emit-sdf @asfadmin @la-county-isd 528899468-0594adca-ec4c-4aca-84ff-8876a79c4766" src="https://github.com/user-attachments/assets/7cd25089-d18c-4155-8cc6-f1e041c29d55" />
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc)  
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
 
 
 ## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
@@ -18,6 +19,44 @@ mathjax: true
 [Is He LYING? Body Language Analyst Reacts to Nolan Wells' Friend's Story! (Warren Hudson) @nasa](https://youtu.be/TmlpJkyaOFQ?si=FKRaKTTjW2iPnUF_)
 
 [ @usgs @nasa @NiHGOV rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+
+# Super Chase - Criminal Termination 1993
+## スーパー・チェイス・クリミナル・ターミネション
+[wiki](https://en.wikipedia.org/wiki/Super_Chase_H.Q.) : [Museum](https://www.arcade-museum.com/Videogame/super-chase-criminal-termination)  : [LaunchBoX](https://gamesdb.launchbox-app.com/games/details/39251-super-chase-criminal-termination)
+: [AbandonWare](https://www.myabandonware.com/game/super-chase-criminal-termination-aue)
+<img width="320" height="78" alt="strategywiki.org/wiki/File:Super_Chase_marquee" src="https://github.com/user-attachments/assets/cfb677ff-4c75-406f-acc5-6d42ef5eafff" />
+
+<iframe src="https://archive.org/embed/arcade_superchs" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+X-Men [1992] - Arcade
+Publication date 1992 Topics X-men,Arcade,@Konami
+[archive.org/details/xmen_20250615_202506](https://archive.org/details/xmen_20250615_202506) /// [Street Fighter Alpha - warriors' dreams (950627 USA)](https://www.retrogames.cc/arcade-games/street-fighter-alpha-warriors-dreams-950627-usa.html) // [Night Warriors - darkstalkers' revenge (950406 USA)](https://www.retrogames.cc/arcade-games/night-warriors-darkstalkers-revenge-950406-usa.html)
+<iframe src="https://archive.org/embed/xmen_20250615_202506" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc) [Shaakira_Gathers_iLoveu](https://rashardiman.github.io/)
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
+
+[nasa.gov/wp-content/uploads/2025/09/nasa-continuity-of-appropriations-plan-final-9-29-2025.pdf?emrc=cd4554](https://www.nasa.gov/wp-content/uploads/2025/09/nasa-continuity-of-appropriations-plan-final-9-29-2025.pdf?emrc=cd4554)
+
+# NASA Appropriations and Authorizations:
+At [a](https://www.earthdata.nasa.gov/data/projects/lance/people) Glance [READ - CLiCKHERE](https://www.congress.gov/crs-product/R43419)
+[@NASA :pdf: @nasa-jpl](https://www.congress.gov/crs_external_products/R/PDF/R43419/R43419.121.pdf)
+@cityoflosangeles [@rashardsdata changelog](https://rashardnasalosangelesjpl.github.io/rashardlearned/changelog) + [@rashardgds BuildingBlocks](https://github.com/ThakaRashard/rashardmro/blob/master/_posts/2025-09-15-BuildingBlocks.md) `<- sites with outages @whitehouse @dhs-gov [Discover and Access the OPERA-DISP Dataset Using ASF DAAC’s Displacement Portal @nasa-jpl](https://www.youtube.com/watch?v=BLzEvT-mdkU)
+
+<iframe src="https://archive.org/embed/Spider-Man-67-Collection" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+<iframe src="https://archive.org/embed/street-fighter-1994-vhs-rip" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+![@whitehouse @nasa-pds @caltech @ASU @blackgirlscode ](https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/ESP/ORB_093000_093099/ESP_093049_1520_ESP_093550_1520/ESP_093049_1520_ESP_093550_1520_RED.browse.png)
+
+<img   alt=" @nasa-jpl @emit-sdf @asfadmin @la-county-isd 528899468-0594adca-ec4c-4aca-84ff-8876a79c4766" src="https://github.com/user-attachments/assets/7cd25089-d18c-4155-8cc6-f1e041c29d55" />
+
+
 
 
 <img   alt="  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard Screenshot 2026-09-27 3 38 48 PM" src="https://github.com/user-attachments/assets/baf299f6-a269-4a6b-a44e-7bd36f02373b" />
