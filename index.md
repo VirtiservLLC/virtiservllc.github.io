@@ -3,6 +3,11 @@ layout: default
 mathjax: true
 ---
 
+
+
+[https://www.google.com/search?q=latrice+fitzpatrick&rlz=1CASLJZ_enUS1234&oq=latrice+fitzpatrick&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQIxgnMgoIAhAAGAoYFhgeMgcIAxAAGO8FMgcIBBAAGO8FMgoIBRAAGIAEGKIEMgcIBhAAGO8F0gEIMzY2NGowajGoAgCwAgA&sourceid=chrome&ie=UTF-8#sv=CAMSZhowKg5laENHLWV4ZDB4bkNyTTIOZWhDRy1leGQweG5Dck06DjNwY3d1OFNCN0VqSDVNIAQqLgoaX1NiVzZhbzZ3T3JQSWtQSVBrOEt2S1FfNTESDmVoQ0ctZXhkMHhuQ3JNGAAwARgHIOP5ybIHSggQAhgBIAIoAQ](https://www.google.com/search?q=latrice+fitzpatrick&rlz=1CASLJZ_enUS1234&oq=latrice+fitzpatrick&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQIxgnMgoIAhAAGAoYFhgeMgcIAxAAGO8FMgcIBBAAGO8FMgoIBRAAGIAEGKIEMgcIBhAAGO8F0gEIMzY2NGowajGoAgCwAgA&sourceid=chrome&ie=UTF-8#sv=CAMSZhowKg5laENHLWV4ZDB4bkNyTTIOZWhDRy1leGQweG5Dck06DjNwY3d1OFNCN0VqSDVNIAQqLgoaX1NiVzZhbzZ3T3JQSWtQSVBrOEt2S1FfNTESDmVoQ0ctZXhkMHhuQ3JNGAAwARgHIOP5ybIHSggQAhgBIAIoAQ) 
+
+
 [Laila's Wisdom re:coral @blackgirlscode](https://youtu.be/btYlWphnfbE)
 [WipEout® OST [PSX]: CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE?si=Shb49Z9P4TdnkV2s) [California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf)
 [1879 California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf) [Equal Rights Amendments: State Provisions](https://web.archive.org/web/20140517123130/https://digital.library.unt.edu/ark:/67531/metacrs7397/m1/1/high_res_d/RS20217_2004Aug23.pdf)  [1849 California Constitution (spanish)](https://archives.cdn.sos.ca.gov/collections/1849/images/1849Constitucion2.pdf)
