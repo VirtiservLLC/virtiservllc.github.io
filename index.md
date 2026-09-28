@@ -3,8 +3,13 @@ layout: default
 mathjax: true
 ---
 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/CM079NRtbjI?si=-LYxWpbgJxH70zHL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+[📺 `Watch` : "No Kings" protests, notable speeches @NBCNEWS @la-county-isd holly j miutchell @lacmta](https://youtu.be/Y_e_u_6RogY) // [📺 Live: Los Angeles No Kings protest](https://youtu.be/QWtx_hmyOyw)
+
 [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes . . . @youtube we have a lot of protestors in @CityOfLosAngeles that are disallusioned by the collapse of retail satisfaction and have started taking things out on internet users that have high profiles in their communities by disabling them , its called [Doxxing](https://www.cuny.edu/about/administration/offices/transformation/diversity-equity-and-inclusion-hub/doxing/) _is the action or process of collecting and disseminating someone’s personal information in order to shame, embarrass, expose or intimidate them. This information can come from private sources but is often obtained from public records._ [readmore](https://www.business-humanrights.org/en/latest-news/meta-yandex-allegedly-abuse-android-protocols-for-user-de-anonymization-raising-privacy-concerns/)
-[@nasa-jpl nokings.org/](https://www.nokings.org/) // [‘No Kings’ rallies planned in L.A., WeHo and Beverly Hills - beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/](https://beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/) // [@nbcnews - How mostly peaceful ‘No Kings' rally in downtown LA suddenly turned chaotic](https://www.nbclosangeles.com/news/local/how-mostly-peaceful-no-kings-rally-in-downtown-la-suddenly-turned-chaotic/3724550/) 
+[@nasa-jpl nokings.org/](https://www.nokings.org/) // [‘No Kings’ rallies planned in L.A., WeHo and Beverly Hills - beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/](https://beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/) // [@nbcnews - How mostly peaceful ‘No Kings' rally in downtown LA suddenly turned chaotic](https://www.nbclosangeles.com/news/local/how-mostly-peaceful-no-kings-rally-in-downtown-la-suddenly-turned-chaotic/3724550/) // [Russian tech giant Yandex lambasted over data leak, regulator launches case @ESA](https://www.reuters.com/legal/litigation/russian-tech-giant-yandex-lambasted-over-data-leak-regulator-launches-case-2022-03-23/) //
 <img  alt="image" src="https://github.com/user-attachments/assets/656749aa-a49d-4cad-9bc1-79819f5ea532" />
 
 
