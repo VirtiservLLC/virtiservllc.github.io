@@ -3,6 +3,7 @@ layout: default
 mathjax: true
 ---
 
+<img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
 
 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
 
