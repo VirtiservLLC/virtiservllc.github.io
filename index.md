@@ -3,6 +3,35 @@ layout: default
 mathjax: true
 ---
 
+[Laila's Wisdom re:coral @blackgirlscode](https://youtu.be/btYlWphnfbE)
+[WipEout® OST [PSX]: CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE?si=Shb49Z9P4TdnkV2s) [California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf)
+[1879 California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf) [Equal Rights Amendments: State Provisions](https://web.archive.org/web/20140517123130/https://digital.library.unt.edu/ark:/67531/metacrs7397/m1/1/high_res_d/RS20217_2004Aug23.pdf)  [1849 California Constitution (spanish)](https://archives.cdn.sos.ca.gov/collections/1849/images/1849Constitucion2.pdf)
+[senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf](https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf) // [codepen.io/thakarashard/pen/YzMEOGN](https://codepen.io/thakarashard/pen/YzMEOGN)
+
+
+
+<img  alt="image@doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes without this account, I'll have to start a lot from scratch including my atlanta story @foratlanta @Caltech @asu @webb @nfl" src="https://github.com/user-attachments/assets/1aa3e413-c703-4b37-af20-e36f433d404e" />
+
+@doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes without this account, I'll have to start a lot from scratch including my atlanta story @foratlanta @Caltech @asu @webb @nfl 
+
+![https://voyageatl.com/wp-content/uploads/2025/05/c-1744878544857-personal_1744878544431_1744878544431_lana_harris_img_5476.jpg @doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here @la-county-isd holly j miutchell @lacmtahttps://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/](https://voyageatl.com/wp-content/uploads/2025/05/c-1744878544857-personal_1744878544431_1744878544431_lana_harris_img_5476.jpg) 
+<img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
+
+@nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
+
+<img  alt="image https://accounts.google.com/uplevelingstep/selection?TL=ADG-GRSIBOYHhQ5otDdZRV-f8yjl7moAUWln-T0lNXUFw7j301VEutjYsms2PUCE&authuser=0&continue=https%3A%2F%2Fstudio.youtube.com%2Fverification_callback&flowName=GlifWebSignIn&sarp=1&scc=1 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard" src="https://github.com/user-attachments/assets/70ce8ad5-6268-4baf-a32a-6513bfba346e" />
+
+
+
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc)  
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
+
+
+
 <img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
 
 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
