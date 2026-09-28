@@ -10,6 +10,9 @@ mathjax: true
 [senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf @CityOfLosAngeles @nasa @ForAtlanta](https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf) // [codepen.io/thakarashard/pen/YzMEOGN](https://codepen.io/thakarashard/pen/YzMEOGN)
 
 
+
+@doug-newman-nasa hi heiress look a lot like coral, I think LAna is Erikas cousin but idk if brandy still impersonates her @@blackgirlscode @deptofwar @USNAVY so I really don't know what's up here and its super humiliating to hold this url down for her since we had a past !!! @LA-county-isd but I have to hold to our contract until she relives me with my mission team present because it was for science at Howard or something there were layers to the hire for upto date data for her news ancoring, I did not know she was an anchor! @newshour hi its rashard 
+
 [ @nasa-pds google.com/search?q=latrice+fitzpatrick&rlz=1CASLJZ_enUS1234&oq=latrice+fitzpatrick&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQIxgnMgoIAhAAGAoYFhgeMgcIAxAAGO8FMgcIBBAAGO8FMgoIBRAAGIAEGKIEMgcIBhAAGO8F0gEIMzY2NGowajGoAgCwAgA&sourceid=chrome&ie=UTF-8#sv=CAMSZhowKg5laENHLWV4ZDB4bkNyTTIOZWhDRy1leGQweG5Dck06DjNwY3d1OFNCN0VqSDVNIAQqLgoaX1NiVzZhbzZ3T3JQSWtQSVBrOEt2S1FfNTESDmVoQ0ctZXhkMHhuQ3JNGAAwARgHIOP5ybIHSggQAhgBIAIoAQ](https://www.google.com/search?q=latrice+fitzpatrick&rlz=1CASLJZ_enUS1234&oq=latrice+fitzpatrick&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQIxgnMgoIAhAAGAoYFhgeMgcIAxAAGO8FMgcIBBAAGO8FMgoIBRAAGIAEGKIEMgcIBhAAGO8F0gEIMzY2NGowajGoAgCwAgA&sourceid=chrome&ie=UTF-8#sv=CAMSZhowKg5laENHLWV4ZDB4bkNyTTIOZWhDRy1leGQweG5Dck06DjNwY3d1OFNCN0VqSDVNIAQqLgoaX1NiVzZhbzZ3T3JQSWtQSVBrOEt2S1FfNTESDmVoQ0ctZXhkMHhuQ3JNGAAwARgHIOP5ybIHSggQAhgBIAIoAQ) 
 
 
