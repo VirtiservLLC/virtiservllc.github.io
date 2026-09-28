@@ -4,6 +4,11 @@ mathjax: true
 ---
 
 
+@nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
+
+<img  alt="image https://accounts.google.com/uplevelingstep/selection?TL=ADG-GRSIBOYHhQ5otDdZRV-f8yjl7moAUWln-T0lNXUFw7j301VEutjYsms2PUCE&authuser=0&continue=https%3A%2F%2Fstudio.youtube.com%2Fverification_callback&flowName=GlifWebSignIn&sarp=1&scc=1 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard" src="https://github.com/user-attachments/assets/70ce8ad5-6268-4baf-a32a-6513bfba346e" />
+
+
 
 [Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc)  
 
