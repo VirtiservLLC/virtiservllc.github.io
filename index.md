@@ -10,6 +10,17 @@ mathjax: true
 [Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
 
 
+# Mornings With Mero : [`Issa Rae`](https://www.youtube.com/@HOORAEMedia) Calls Out 
+_Hollywood,Mamdani's Influencer Heat and Kirk Franklin Sa..._ [`WATCH` - youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e](https://youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e)
+
+<img alt="image" src="https://github.com/user-attachments/assets/e3d28461-aacb-444f-922d-e3e9c6d5be65" />
+
+[Team Falken Drifting @nasa-pds](https://youtu.be/aZ5ieXGs-IE?list=RDaZ5ieXGs-IE)
+
+![https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+
+
 ## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
 [`WATCH` - youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp](https://youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp)
 
