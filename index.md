@@ -3,6 +3,9 @@ layout: default
 mathjax: true
 ---
 
+@nasa , @eodis-nasa @doug-newman-nasa @usgs @la-county-isd hi I wanted to report that the @github account for @Nasa-jpl is under account restrictions [@usdoj I know this was public](https://www.nasa.gov/foia/) like most @nasa GitHub home pages, so its a sign of disablement, please check on the admin @nasa-giss from here its a redirect and there is a flash of [dareMightyThings](https://science.nasa.gov/resource/dare-mighty-things/) [github.com/nasa-jpl/nasa-jpl.github.io](https://github.com/nasa-jpl/nasa-jpl.github.io) but the old front end is not working properly 
+<img  alt="image" src="https://github.com/user-attachments/assets/e9a82ce7-d94d-4fda-abc3-9c7ef59f8268" />
+
 
 @nasa-pds `This branch is 3333 commits ahead of pages-themes/architect:master.` [@foratlanta github.com/pages-themes/architect/commit/ddeff256ff2193f0ba3949e9ac829781b9f943e3](https://github.com/pages-themes/architect/commit/ddeff256ff2193f0ba3949e9ac829781b9f943e3)
 
