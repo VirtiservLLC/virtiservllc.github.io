@@ -3,6 +3,35 @@ layout: default
 mathjax: true
 ---
 
+[@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes . . . @youtube we have a lot of protestors in @CityOfLosAngeles that are disallusioned by the collapse of retail satisfaction and have started taking things out on internet users that have high profiles in their communities by disabling them , its called [Doxxing](https://www.cuny.edu/about/administration/offices/transformation/diversity-equity-and-inclusion-hub/doxing/) _is the action or process of collecting and disseminating someone’s personal information in order to shame, embarrass, expose or intimidate them. This information can come from private sources but is often obtained from public records._ [readmore](https://www.business-humanrights.org/en/latest-news/meta-yandex-allegedly-abuse-android-protocols-for-user-de-anonymization-raising-privacy-concerns/)
+[@nasa-jpl nokings.org/](https://www.nokings.org/) // [‘No Kings’ rallies planned in L.A., WeHo and Beverly Hills - beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/](https://beverlypress.com/2025/06/no-kings-rallies-planned-in-l-a-weho-and-beverly-hills/) // [@nbcnews - How mostly peaceful ‘No Kings' rally in downtown LA suddenly turned chaotic](https://www.nbclosangeles.com/news/local/how-mostly-peaceful-no-kings-rally-in-downtown-la-suddenly-turned-chaotic/3724550/) 
+<img  alt="image" src="https://github.com/user-attachments/assets/656749aa-a49d-4cad-9bc1-79819f5ea532" />
+
+
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-28-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman
+<img   alt="image [@doug-newman-nasa hi heiress @blackgirlscode @nbcnews @newshour ](https://www.imdb.com/name/nm10878315/) look a lot like coral, I think LAna is Erikas cousin but idk if brandy still impersonates her @ @blackgirlscode @deptofwar @USNAVY so I really don't know what's up here and its super humiliating to hold this url down for her since we had a past !!! @LA-county-isd but I have to hold to our contract until she relives me with my mission team present because it was for science at Howard or something there were layers to the hire for upto date data for her news ancoring, I did not know she was an anchor! @newshour hi its rashard 
+[@eodis-nasa @doug-newman-nasa if you in DC @Whitehouse share https://www.google.com/search?sca_esv=4cefd605c4e449b3&rlz=1CASLJZ_enUS1234&sxsrf=APpeQnsmhMrUJbnpUx9zS-iN61FrIZ0pYA:1790622699379&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VTJOOCxW_fyN-Q_ezyf8gKCPb62Sv4Y60wQDsMxJw_GUn1N2yN6o6cIH09xVUI5GL_0tqfbtAVzy9rZzU3mIopUAqZ4wel5f-RYFX5xtVMdIdyIj-pkKUUyY8TklLN58LLmsUeCEiYJPo7E13HzQ0pqdGFl_skouagXjFd5fVQWurPntg&q=latrice+fitzpatrick&sa=X&ved=2ahUKEwim2rCv_ZGXAxX3JUQIHefbFfkQtKgLegQIGhAB&biw=1920&bih=945&dpr=1](https://www.google.com/search?sca_esv=4cefd605c4e449b3&rlz=1CASLJZ_enUS1234&sxsrf=APpeQnsmhMrUJbnpUx9zS-iN61FrIZ0pYA:1790622699379&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VTJOOCxW_fyN-Q_ezyf8gKCPb62Sv4Y60wQDsMxJw_GUn1N2yN6o6cIH09xVUI5GL_0tqfbtAVzy9rZzU3mIopUAqZ4wel5f-RYFX5xtVMdIdyIj-pkKUUyY8TklLN58LLmsUeCEiYJPo7E13HzQ0pqdGFl_skouagXjFd5fVQWurPntg&q=latrice+fitzpatrick&sa=X&ved=2ahUKEwim2rCv_ZGXAxX3JUQIHefbFfkQtKgLegQIGhAB&biw=1920&bih=945&dpr=1)" src="https://github.com/user-attachments/assets/1d39057b-fb4d-43d8-813e-9c748819d4eb" />
 
 
 [@doug-newman-nasa hi heiress @blackgirlscode @nbcnews @newshour ](https://www.imdb.com/name/nm10878315/) look a lot like coral, I think LAna is Erikas cousin but idk if brandy still impersonates her @ @blackgirlscode @deptofwar @USNAVY so I really don't know what's up here and its super humiliating to hold this url down for her since we had a past !!! @LA-county-isd but I have to hold to our contract until she relives me with my mission team present because it was for science at Howard or something there were layers to the hire for upto date data for her news ancoring, I did not know she was an anchor! @newshour hi its rashard 
