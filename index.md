@@ -4,6 +4,12 @@ mathjax: true
 ---
 
 
+[@ForAtlanta im in deep now 😶‍🌫️ instagram.com/latresha.fitzpatrick/](https://www.instagram.com/latresha.fitzpatrick/) @Whitehouse @howard-university-web-services @blackgirlscode . . . @eodis-nasa @doug-newman-nasa this may be her mom , but i dont know exactly what [Lana J HArris](https://www.facebook.com/lanaonlocation/reels/) is but they are three separate people and whatever happened i made commitments taht disrupted my life and will disrupt my mission standing for o reason other than gadget envy and sex slavery it seems foolish, now boys are waring with me over the pdf so woodstock tailgaters on @spotify can keep a [torture ring going](https://hollywoodpartnership.com/go/medieval-torture-museum) the museum may have deetails [@newshour hollywoodpartnership.com/go/medieval-torture-museum](https://hollywoodpartnership.com/go/medieval-torture-museum)! 
+
+![https://www.war.gov/portals/1/Spotlight/2022/combating-trafficking-in-persons/images/ctip-seal.png](https://www.war.gov/portals/1/Spotlight/2022/combating-trafficking-in-persons/images/ctip-seal.png) 
+
+<img alt="image [@ForAtlanta @instagram .com/p/DKhbgTLvovy/ @nasa-pds](https://www.instagram.com/p/DKhbgTLvovy/) https://www.instagram.com/latresha.fitzpatrick/ @deptofwar " src="https://github.com/user-attachments/assets/778e3d1f-1fb2-405f-80af-ff137cab8270" />
+
 [@ForAtlanta @instagram .com/p/DKhbgTLvovy/ @nasa-pds](https://www.instagram.com/p/DKhbgTLvovy/)
 <img  alt="image" src="https://github.com/user-attachments/assets/93b86172-e8c3-4d44-abc8-eda23038a254" />
 
