@@ -3,9 +3,56 @@ layout: default
 mathjax: true
 ---
 
+
+### Dear Rep Karen @CityOFLosAnGeles,
+I was in the [Meyer goldwyn branch](https://www.lapl.org/branches/hollywood) and found these pages in the County Municipal ... Of your powers [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349), [MuniCode.Com @la-county-isd library.municode.com/ca/los_angeles_county/codes @nasa-jpl @nasa @deptofwar](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid @usgpo hi its rashard from @nasa-jpl can this record be verified for @eodis-nasa we need it for our [future artemis builds @nasa](https://www.jpl.nasa.gov/news/networks-keeping-nasas-artemis-ii-mission-connected/) , @TheSapceDevs if you look on Page 11, you will see request for Deep Space Network Aquisition Services... and thats us here in @la-county-isd pasadena @nasa-pds @nasa-jpl @Howard-university-web-services [@nasa-jpl is lunar ops DSN ? @nasa-pds - `Artemis3 Docs` @USNAVY @cal-poly-dxhub plz fwd to victor @nasa-openscapes ](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11)
+@doug-newman-nasa @eodis-nasa See Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265, [https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf) <~ is it legit @whitehouse @deptofwar @commercegov @la-county-isd @CityOfSantaMonica @longbeachinnovationteam .
+<img  alt="image" src="https://github.com/user-attachments/assets/1c37a142-9260-49f0-8274-956c878becd0" />
+
+```
+Artemis Campaign.—The agreement rejects
+the proposed termination of the Space
+Launch System (SLS) and Orion programs
+following Artemis III. In any future competition for Artemis launch services, the agreement directs NASA to include an SLS-based
+option, unless otherwise directed by Congress. The agreement further prohibits the
+reallocation of funds from the Artemis Moon
+to Mars Transportation account, unless and
+until a commercial alternative is demonstrated to meet or exceed the capabilities
+of the SLS and Orion systems. Not later than
+30 days of the enactment of this act, and
+quarterly thereafter, NASA shall provide the
+Committees a briefing detailing any updates
+on the Human Landing System (HLS) program, the progress made in the HLS program, any anticipated changes to program
+cost or schedule, and any other relevant
+issues related to the HLS program
+```
+
+
+![https://www.congress.gov/img/svg/congress-gov-logo.svg](https://www.congress.gov/img/svg/congress-gov-logo.svg) 
+
+<object data="https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11" type="application/pdf" width="800" height="500">
+<p>You don't have a PDF plugin, but you can <a href="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf">download the PDF file.</a></p></object>
+
+
+[<video  preload="auto" width="auto" height="400px" controls src="https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4" />](https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4)
+
+
+
+
+![Mayor is Chief Executive -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_-sAbEAAzy6b?format=png&name=900x900)
+![Mayoral Duties -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGlAAJXacAAKuq7?format=jpg&name=medium)
+![mayor -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_9YfbcAAfHg_?format=jpg&name=medium) // [@nasa-jpl check out the COVID tweets I was here man! rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+[<video  preload="auto" width="auto" height="400px" controls src="https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4" />](https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4)
+
 <img  alt="image [@LA-County-isd @CitYOFLosANGELES](https://www.tiktok.com/@mjbusinessacademy/video/7567530603516661005) @
 @CityOFSantaMonica if [ya know holly](https://www.hollyjmitchell.com/)!
 @HollyJMitchell@bos.lacounty.gov sorry to bug you, i need to talk about downtown safety, im miserable... i suffred a cyberattack followed by a weed robbery that nights ,,, @lanajharris@gmail.com we had the brush by in front of the police department and i cant picture her distancing herself by disabling my youtube account i use for nasa earthdata and all the support webinars we have to keep up with @douglas.j.newman@nasa.gov , [howard.edu](howard.edu) is accross the street from @The White House  , and virtiserv is like her theisis, and i know my boss @gatech was pretty and got kidnapped so... idk .. [Count PRofits](https://www.bbb.org/us/oh/youngstown/profile/financial-planning-consultants/count-profits-0432-20020936) is a business that came up while she was out of my physical care so i dont know she was into a lot  . @benjamin.porter@cantonga.gov hi you may remember my spouse of alameda countys case [essence.com/news/erika-kelly-missing-atlanta-georgia/](essence.com/news/erika-kelly-missing-atlanta-georgia/) . . . @keishaforgovernor@gmail.com  i have reason to belive that this is erika [essence.com/celebrity/mulatto-is-growing-with-age-feature/](essence.com/celebrity/mulatto-is-growing-with-age-feature/) and im being bullied mercilessly by the sex trade, people brag of pimping fantasies and porno expectations completed regularly while i get castration threats @kathryn@bos.lacounty.gov [@dohmke](https://www.tiktok.com/@mjbusinessacademy/video/7567530603516661005) @office@lafirstumc.org @howard-university-web-services [@fbicyber she said she work here too](https://ilwu63.net/wp-content/uploads/2017/06/6-2-2017-LA-LB-Casual-Processing-List.pdf) " src="https://github.com/user-attachments/assets/06321716-3f59-44a0-8718-bc5aa0078151" />
+
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">@NASAJPL @EuropaClipper https://t.co/ISVkHYHn4b do u guys knw #Ms_LiLi_BossE?@Beyonce gone jack her title (#Bossy (-(-_(-_-)_-)-) #Everyoneknows) anyway these r some good #LosAngelesLocalPoliticsContacts @NASASpaceflight 
+@LiliBosse1 @HildaSolis @SenBillNelson @RepKarenBass @skyepatrickLIB1 #defineMayor https://t.co/IKcOta7Dmz</p>&mdash; BubbleGumPop (@BubbleGumPop510) <a href="https://x.com/BubbleGumPop510/status/1759007658462548349?ref_src=twsrc%5Etfw">February 18, 2024</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
 
 [@LA-County-isd @CitYOFLosANGELES](https://www.tiktok.com/@mjbusinessacademy/video/7567530603516661005) @
 @CityOFSantaMonica if [ya know holly](https://www.hollyjmitchell.com/)!
@@ -61,6 +108,8 @@ mathjax: true
 [Mayor Bass pushes back on media portrayal of protests: “It is a lie”](https://www.cnn.com/us/live-news/la-protests-ice-raids-trump-06-11-25) @cityoflosangeles @stateofcalifornia [Who is rioting in downtown L.A., demonstrators or habitual agitators?](https://ktla.com/news/local-news/who-is-rioting-in-downtown-l-a-demonstrators-or-habitual-agitators/)
 [![1749850159579-6f32ba29-b379-45a1-9b36-13ca436701ef_1](https://github.com/user-attachments/assets/1b008682-7151-41ee-9f31-9af6ffc5cb32)](https://www.ice.gov/history) @ktla @abc7 
 
+<img   alt="  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard Screenshot 2026-09-27 3 38 48 PM" src="https://github.com/user-attachments/assets/baf299f6-a269-4a6b-a44e-7bd36f02373b" />
+
 # Crews clean off graffiti from City Hall
 Cleaning crews remove graffiti from City Hall left during protests. - [Kelvin Kuo](https://www.latimes.com/people/kelvin-kuo) [LATiMES - Shocking vandalism rampage in downtown L.A. sparks outrage as LAPD seeks suspects](https://www.latimes.com/california/story/2025-05-27/dtla-vandalism-investigation)
 <object
@@ -73,11 +122,14 @@ Cleaning crews remove graffiti from City Hall left during protests. - [Kelvin Ku
 # California Constitution
 <object data="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf" type="application/pdf" width="800" height="500">
 <p>You don't have a PDF plugin, but you can <a href="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf">download the PDF file.</a></p></object>
+
 <picture>
+	
   <source  srcset="https://ca-times.brightspotcdn.com/dims4/default/1d5fbb4/2147483647/strip/true/crop/3758x2132+0+0/resize/1024x581!/format/webp/quality/75/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2F2c%2F80%2F518470384c4eb4a13da730261e60%2Fla-me-vandalism-mob002.JPG">
   <source  srcset="https://github.com/user-attachments/assets/d8872e9f-01fc-44bb-9cf8-7299d652b023">
 
   <img src="https://ca-times.brightspotcdn.com/dims4/default/1d5fbb4/2147483647/strip/true/crop/3758x2132+0+0/resize/1024x581!/format/webp/quality/75/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2F2c%2F80%2F518470384c4eb4a13da730261e60%2Fla-me-vandalism-mob002.JPG" alt="Flowers" style="width:auto;">
+  
 </picture>
 
 
