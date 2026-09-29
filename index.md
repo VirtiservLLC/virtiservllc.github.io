@@ -10,7 +10,7 @@ mathjax: true
 
 # LAna J Harris
 ## The Strange Story Behind The UK Base Bomb Scare
-[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba`](https://youtu.be/S0cwTjXgX_o?t=879) ////   [
+[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [
 UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133)
 <img  alt="image" src="https://github.com/user-attachments/assets/0ec484f0-c96a-419e-a334-b6b4136f7fb0" />
 
