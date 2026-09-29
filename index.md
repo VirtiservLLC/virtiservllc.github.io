@@ -25,6 +25,7 @@ mathjax: true
 <img alt="586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834" src="https://github.com/user-attachments/assets/8d4cf77d-0378-446c-908e-c179d1e32220" />
 <img  alt="586788407-7da4ad9d-24da-40a9-93be-44cdc409c421" src="https://github.com/user-attachments/assets/ecf572e8-e965-43a2-806d-5d3680a3be00" />
 
+![https://i1.sndcdn.com/artworks-pTTYEez5J7KK-0-t500x500.jpg](https://i1.sndcdn.com/artworks-pTTYEez5J7KK-0-t500x500.jpg)
 
 ![https://memorial.bellsystem.com/images/bell_stripe_header.png](https://memorial.bellsystem.com/images/bell_stripe_header.png) 
 
