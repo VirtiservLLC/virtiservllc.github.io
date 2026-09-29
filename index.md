@@ -10,7 +10,13 @@ mathjax: true
 
 # LAna J Harris
 ## The Strange Story Behind The UK Base Bomb Scare
-[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133) [@tesla @nasa-jpl @deptofwar @Cityoflosangeles](https://raw.githubusercontent.com/thakarashard/thakarashard.github.ioricothaka/master/assets/video/teslacoilsnormaniismissing.mp4) watts needs public monitoring @newshour @cbs-news-data
+[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133) // [AT&T Archives: The UNIX Operating System](https://youtu.be/tc4ROCJYbm0) [@tesla @nasa-jpl @deptofwar @Cityoflosangeles](https://raw.githubusercontent.com/thakarashard/thakarashard.github.ioricothaka/master/assets/video/teslacoilsnormaniismissing.mp4) watts needs public monitoring @newshour @cbs-news-data
+
+![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
+
+<img alt="586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834" src="https://github.com/user-attachments/assets/8d4cf77d-0378-446c-908e-c179d1e32220" />
+<img  alt="586788407-7da4ad9d-24da-40a9-93be-44cdc409c421" src="https://github.com/user-attachments/assets/ecf572e8-e965-43a2-806d-5d3680a3be00" />
+
 
 ![https://memorial.bellsystem.com/images/bell_stripe_header.png](https://memorial.bellsystem.com/images/bell_stripe_header.png) 
 
