@@ -5,9 +5,17 @@ mathjax: true
 
 
 ### Dear Rep Karen @CityOFLosAnGeles,
-I was in the [Meyer goldwyn branch](https://www.lapl.org/branches/hollywood) and found these pages in the County Municipal ... Of your powers [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349), [MuniCode.Com @la-county-isd library.municode.com/ca/los_angeles_county/codes @nasa-jpl @nasa @deptofwar](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid @usgpo hi its rashard from @nasa-jpl can this record be verified for @eodis-nasa we need it for our [future artemis builds @nasa](https://www.jpl.nasa.gov/news/networks-keeping-nasas-artemis-ii-mission-connected/) , @TheSapceDevs if you look on Page 11, you will see request for Deep Space Network Aquisition Services... and thats us here in @la-county-isd pasadena @nasa-pds @nasa-jpl @Howard-university-web-services [@nasa-jpl is lunar ops DSN ? @nasa-pds - `Artemis3 Docs` @USNAVY @cal-poly-dxhub plz fwd to victor @nasa-openscapes ](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11)
-@doug-newman-nasa @eodis-nasa See Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265, [https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf) <~ is it legit @whitehouse @deptofwar @commercegov @la-county-isd @CityOfSantaMonica @longbeachinnovationteam .
-<img  alt="image" src="https://github.com/user-attachments/assets/1c37a142-9260-49f0-8274-956c878becd0" />
+I was in the [Meyer goldwyn branch](https://www.lapl.org/branches/hollywood) and found these pages in the County Municipal ... Of your powers , [MuniCode.Com  library.municode.com/ca/los_angeles_county/codes ](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid @usgpo hi its rashard from @nasa-jpl can this record be verified for @eodis-nasa we need it for our [future artemis builds @nasa](https://www.jpl.nasa.gov/news/networks-keeping-nasas-artemis-ii-mission-connected/) , @TheSapceDevs if you look on Page 11, you will see request for Deep Space Network Aquisition Services... and thats us here in @la-county-isd pasadena @nasa-pds @nasa-jpl [ is lunar ops DSN ? @nasa-pds - `Artemis3 Docs`  @cal-poly-dxhub plz fwd to victor @nasa-openscapes ](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11) @doug-newman-nasa @eodis-nasa See Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265, [govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf) <~ is it legit @whitehouse @deptofwar @commercegov @la-county-isd @CityOfSantaMonica @longbeachinnovationteam . [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349) @nasa-jpl @nasa @deptofwar @la-county-isd
+
+<object data="https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11" type="application/pdf" width="800" height="500">
+<p>You don't have a PDF plugin, but you can <a href="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf">download the PDF file.</a></p></object>
+
+### keeping-nasas-artemis-ii-mission-connected 
+@nasa-jpl @usnavy @code.mil
+[<video  preload="auto" width="auto" height="400px" controls src="https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4" />](https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4)
+
+
+
 
 ```
 Artemis Campaign.—The agreement rejects
@@ -28,13 +36,9 @@ issues related to the HLS program
 ```
 
 
+<img  alt="image" src="https://github.com/user-attachments/assets/1c37a142-9260-49f0-8274-956c878becd0" />
+
 ![https://www.congress.gov/img/svg/congress-gov-logo.svg](https://www.congress.gov/img/svg/congress-gov-logo.svg) 
-
-<object data="https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11" type="application/pdf" width="800" height="500">
-<p>You don't have a PDF plugin, but you can <a href="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf">download the PDF file.</a></p></object>
-
-
-[<video  preload="auto" width="auto" height="400px" controls src="https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4" />](https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4)
 
 
 
