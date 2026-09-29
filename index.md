@@ -9,10 +9,10 @@ mathjax: true
 ### [Captain America](https://marvel.fandom.com/wiki/Captain_America) 1944
 <iframe src="https://archive.org/embed/CaptainAmerica1944Serial1" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
-# Windows 3.0
+# Windows 95 エミュレーター (DOSBox)
 [@blackgirlscode hi its a vintage os you may find around usajobs.gov](https://www.usajobs.gov/)
-[`run`](https://archive.org/details/w-3_20231227)
-<iframe src="https://archive.org/embed/w-3_20231227" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+[`run`](https://archive.org/details/win95_in_dosbox_ja)
+<iframe src="https://archive.org/embed/win95_in_dosbox_ja" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 ### keeping-nasas-artemis-ii-mission-connected 
 @nasa-jpl @usnavy @code.mil
