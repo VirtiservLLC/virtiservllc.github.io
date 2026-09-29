@@ -18,7 +18,7 @@ author: RashardKelly @nasa-jpl
   data="https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b"
   width="250"
   height="200"></object>
-<video  controls> 
+
   ```
  <object
   type="audio/x-mpegurl"
