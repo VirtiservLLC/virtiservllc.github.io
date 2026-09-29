@@ -10,8 +10,10 @@ mathjax: true
 
 # LAna J Harris
 ## The Strange Story Behind The UK Base Bomb Scare
-[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [
-UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133)
+[`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133)
+
+![https://memorial.bellsystem.com/images/bell_stripe_header.png](https://memorial.bellsystem.com/images/bell_stripe_header.png) 
+
 <img  alt="image" src="https://github.com/user-attachments/assets/0ec484f0-c96a-419e-a334-b6b4136f7fb0" />
 
 ![@nasa https://thumb.wikimedia.org/wikipedia/commons/thumb/f/fa/AT%26T_Bell_Laboratories_logo.svg/1280px-AT%26T_Bell_Laboratories_logo.svg.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/f/fa/AT%26T_Bell_Laboratories_logo.svg/1280px-AT%26T_Bell_Laboratories_logo.svg.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=thumbnail) 
