@@ -9,6 +9,12 @@ mathjax: true
 
 
 # LAna J Harris
+## HOT 97 News Live! 9/29/26
+[`WATCH` - HOT 97 News Live! 9/29/26 ](https://www.youtube.com/watch?v=DcGXzeKQ6cQ)
+[`SampleCode` @nasa-jpl https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010 @dhs-gov ](https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010) 
+<img   alt="image" src="https://github.com/user-attachments/assets/1c4533f9-0f29-4382-a743-a03513f3fce8" />
+<img alt="image" src="https://github.com/user-attachments/assets/06b008a6-664a-4403-82e7-6742672b5588" />
+
 ## The Strange Story Behind The UK Base Bomb Scare
 [`WATCH` - https://youtu.be/S0cwTjXgX_o?t=879 `MrTrump on Cuba` @DeptOfWar @whitehouse](https://youtu.be/S0cwTjXgX_o?t=879) ////   [UNIX: Making Computers Easier To Use -- AT&T Archives film from 1982, Bell Laboratories](https://youtu.be/XvDZLjaCJuw?t=133) // [AT&T Archives: The UNIX Operating System](https://youtu.be/tc4ROCJYbm0) [@tesla @nasa-jpl @deptofwar @Cityoflosangeles](https://raw.githubusercontent.com/thakarashard/thakarashard.github.ioricothaka/master/assets/video/teslacoilsnormaniismissing.mp4) watts needs public monitoring @newshour @cbs-news-data
 
