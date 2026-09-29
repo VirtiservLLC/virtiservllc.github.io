@@ -6,24 +6,26 @@ mathjax: true
 
 ---
 
+@nbcnews here is a live feed i found on @iptv for abcnews
+
+https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b
 
 
-
-# @iPTV @ForAtlanta
+# 📺 @iPTV @ForAtlanta
 [iptv-org.github.io/](https://iptv-org.github.io/)
-I started a ticket for [abc7](https://abc7.com/) in [@CityOfLoSAngeles](https://www.linkedin.com/company/city-of-los-angeles) but fell off because there was a feild missing i needed to complete the [contribution requirements](https://github.com/iptv-org/iptv/blob/master/CONTRIBUTING.md) @nasa-jpl hi @whitehouse [TrumpTv](https://www.whitehouse.gov/trumptv/) /// [@whitehouse @nasa-giss fukuball/Trump-Driven-Development](https://github.com/fukuball/Trump-Driven-Development) @eodis-nasa
+I started a ticket for [abc7](https://abc7.com/) in [@CityOfLoSAngeles](https://www.linkedin.com/company/city-of-los-angeles) but fell off because there was a feild missing i needed to complete the [contribution requirements](https://github.com/iptv-org/iptv/blob/master/CONTRIBUTING.md) for the [📺`Add Channel Form`📺](https://github.com/iptv-org/database/issues/new?labels=logos%3Aadd&template=07_logos_add.yml&title=Add%3A+1TV+%28Afghanistan%29+Logo&channel_id=1TV.af)@nasa-jpl hi @whitehouse [TrumpTv📺](https://www.whitehouse.gov/trumptv/) /// [@whitehouse @nasa-giss fukuball/Trump-Driven-Development](https://github.com/fukuball/Trump-Driven-Development) @eodis-nasa
 [https://github.com/iptv-org/iptv](https://github.com/iptv-org/iptv) 
 
-# ATLChannel26
+# ATLChannel26 📺
 Description _Welcome to ATL26 – your official channel for all things City of Atlanta government._
 [youtube.com/@ATLChannel26](https://www.youtube.com/@ATLChannel26)
 ![https://yt3.googleusercontent.com/caFJi21WJizZ9HXZkLkj3SIL_oWEQZ8URgET2k2TrqfPh-hVo-Pm6R9U1I3dvkPh-6Wm-q93Tw=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/caFJi21WJizZ9HXZkLkj3SIL_oWEQZ8URgET2k2TrqfPh-hVo-Pm6R9U1I3dvkPh-6Wm-q93Tw=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
 
-# atlcouncil - Atlanta City Council
+# atlcouncil - Atlanta City Council 📺
 [@forAtlanta  youtube.com/@atlcouncilAtlantaCityCouncil](https://www.youtube.com/@atlcouncilAtlantaCityCouncil)
 ![https://yt3.googleusercontent.com/wB4S-3F41LMRzQnmJ1uQDeHfI3-KFZBSow7hsFxLxegtG3QZu76YevVQKZJenfLvmkuldHvAbQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/wB4S-3F41LMRzQnmJ1uQDeHfI3-KFZBSow7hsFxLxegtG3QZu76YevVQKZJenfLvmkuldHvAbQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
 
-# Hot97tv 
+# Hot97tv  📺
 [`WATCH` - Florida Carjacking Chase, Frat Hazing Arrests & Classroom Fight Club](https://youtu.be/Kc0vnyHXQN4)
 @howard-university-web-services hi @nasa-jpl cafeteria [@blackgirlscode photoshopalternative: painter5](https://archive.org/details/fractaldesignpainter5_pa50cd1)
 
