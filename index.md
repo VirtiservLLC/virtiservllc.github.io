@@ -13,6 +13,10 @@ mathjax: true
 [`WATCH` - HOT 97 News Live! 9/29/26 ](https://www.youtube.com/watch?v=DcGXzeKQ6cQ)
 [`SampleCode` @nasa-jpl https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010 @dhs-gov ](https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010) //// [@nasa-jpl @fema @femagov @foratlanta codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) /// [CodePen thakarashard.github.io 5/19 codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP)
 <img   alt="image" src="https://github.com/user-attachments/assets/1c4533f9-0f29-4382-a743-a03513f3fce8" />
+
+[H.E.R. rollover @Blackgirlscode](https://codepen.io/thakasartu/pen/ExLNKyM)
+<img  alt="image" src="https://github.com/user-attachments/assets/4dfe599b-e3ed-4559-8155-951e987fce7b" />
+
 <img   alt="image @whitehouse @fecgov" src="https://github.com/user-attachments/assets/f21e53e8-8b20-4c4e-8479-982a2992e667" />
 
 <img alt="image" src="https://github.com/user-attachments/assets/06b008a6-664a-4403-82e7-6742672b5588" />
