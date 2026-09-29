@@ -2,7 +2,14 @@
 layout: default
 mathjax: true
 ---
+[GloRilla Live at MadisonSquareGarden](https://archive.org/details/GloRilla2024-05-21?webamp=default)
 
+---
+
+# Windows 3.0
+[@blackgirlscode hi its a vintage os you may find around usajobs.gov](https://www.usajobs.gov/)
+[`run`](https://archive.org/details/w-3_20231227)
+<iframe src="https://archive.org/embed/w-3_20231227" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 ### keeping-nasas-artemis-ii-mission-connected 
 @nasa-jpl @usnavy @code.mil
