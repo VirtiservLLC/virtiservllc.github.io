@@ -6,6 +6,10 @@ mathjax: true
 
 ---
 
+## Space Station Operations Update (Sept. 28, 2026)
+@nasa-pds [Why are black Americans moving to Mexico? @GobCDMX @Quetzaltlali @BLACKGiRLSCODE](https://youtu.be/UVXywuDAZEY)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j9epFget1W8?si=KaErfjrVebzASo8-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ### Access Denied 
 You don't have permission to access "http://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/537787e477cb491b8cfd57eb8cc37da4/index.m3u8?" on this server.
