@@ -7,6 +7,16 @@ mathjax: true
 ---
 
 
+### Access Denied 
+You don't have permission to access "http://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/537787e477cb491b8cfd57eb8cc37da4/index.m3u8?" on this server.
+Reference #18.36e9d317.1790716806.39a0be5
+
+`https://errors.edgesuite.net/18.36e9d317.1790716806.39a0be5 ` <~ @nasa-pds @nasa-jpl @eodis-nasa this url changes, i dont know how to keep it persistent. i like @iptv i hope we can get in @nasa-develop @abcnews [@codepen .io/ @virtiserv/pen/XJpzeNV?editors=1100](https://codepen.io/virtiserv/pen/XJpzeNV?editors=1100)
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/11878eb1-e857-48f4-9078-6f95b1dc758d" />
+
+
 ## Access Sacramento Channel 17
 
 [@saccounty @stateofcalifornia reflect-access-sacramento.cablecast.tv/live-7/live/live.m3u8 @deptofwar](https://reflect-access-sacramento.cablecast.tv/live-7/live/live.m3u8)
