@@ -10,7 +10,7 @@ author: RashardKelly @nasa-jpl
 
 
 ## Space Station Operations Update (Sept. 28, 2026)
-@nasa-pds
+@nasa-pds [Why are black Americans moving to Mexico? @GobCDMX @Quetzaltlali @BLACKGiRLSCODE](https://youtu.be/UVXywuDAZEY)
 <iframe width="560" height="315" src="https://www.youtube.com/embed/j9epFget1W8?si=KaErfjrVebzASo8-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 
