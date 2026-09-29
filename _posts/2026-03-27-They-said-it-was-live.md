@@ -8,6 +8,12 @@ image: post_computinsg.PNG
 author: RashardKelly @nasa-jpl
 ---
 
+
+## Space Station Operations Update (Sept. 28, 2026)
+@nasa-pds
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j9epFget1W8?si=KaErfjrVebzASo8-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
 @nasa-jpl here is a method for streaming in html5
 
 [`link` - https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8](https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b)
