@@ -2,13 +2,24 @@
 layout: default
 mathjax: true
 ---
-[GloRilla Live at MadisonSquareGarden](https://archive.org/details/GloRilla2024-05-21?webamp=default) // [Nipsey Hussle & DJ Drama - Mailbox Money-2015](https://archive.org/details/Nipsey_Hussle_and_DJ_Drama_-_Mailbox_Money-2015?webamp=default) //
+[GloRilla Live at MadisonSquareGarden](https://archive.org/details/GloRilla2024-05-21?webamp=default) // [Nipsey Hussle & DJ Drama - Mailbox Money-2015](https://archive.org/details/Nipsey_Hussle_and_DJ_Drama_-_Mailbox_Money-2015?webamp=default) // [Nipsey Hussle - Victory Lap (2018 Studio Album 16 Tracks) R.I.P. Nipsey Hussle](https://archive.org/details/victorylap2018?webamp=default) `is Rob DomKennedy @Blackgirlscode`? [Nipsey Hussle - Double Up Ft. Belly & Dom Kennedy](https://youtu.be/pwBFOuCrdr4?si=wuDOoIGWqtcefFD6)
 
+
+<div class="Tupperware">
+	
 <figure>
   <figcaption>Listen to A Hunnit A Show (feat. Rick Ross) - Nipsey Hussle (Mailbox Money):</figcaption>
   <audio controls src="https://dn711002.ca.archive.org/0/items/Nipsey_Hussle_and_DJ_Drama_-_Mailbox_Money-2015/02%20Nipsey%20Hussle%20-%20A%20Hunnit%20A%20Show%20%28Feat.%20Rick%20Ross%29%20%5BProd.%20By%20Hit-Boy%5D.mp3"></audio>
   <a href="https://dn711002.ca.archive.org/0/items/Nipsey_Hussle_and_DJ_Drama_-_Mailbox_Money-2015/02%20Nipsey%20Hussle%20-%20A%20Hunnit%20A%20Show%20%28Feat.%20Rick%20Ross%29%20%5BProd.%20By%20Hit-Boy%5D.mp3"> Download audio </a>
 </figure>
+
+<figure>
+  <figcaption>Listen to Double Up - Nipsey Hussle (Victory Lap):</figcaption>
+  <audio controls src="https://dn721906.ca.archive.org/0/items/victorylap2018/15-Double%20Up%20%28Ft.%20Belly%20%26%20Dom%20Kennedy%29.mp3"></audio>
+  <a href="https://dn721906.ca.archive.org/0/items/victorylap2018/15-Double%20Up%20%28Ft.%20Belly%20%26%20Dom%20Kennedy%29.mp3"> Download audio </a>
+</figure>
+
+</div>
 
 ---
 
