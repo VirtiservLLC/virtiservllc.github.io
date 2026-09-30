@@ -13,6 +13,18 @@ mathjax: true
 ---
 
 
+# [LAna](https://upload.wikimedia.org/wikipedia/commons/4/49/Sura4.pdf?utm_source=en.wikipedia.org&utm_campaign=index&utm_content=original) J Harris
+## HOT 97 News Live! 9/29/26
+[`WATCH` - HOT 97 News Live! 9/29/26 ](https://www.youtube.com/watch?v=DcGXzeKQ6cQ)
+[`SampleCode` @nasa-jpl https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010 @dhs-gov ](https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010) //// [@nasa-jpl @fema @femagov @foratlanta codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) /// [CodePen thakarashard.github.io 5/19 codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) // [archive.org/details/6176274-`Nipsey-Hussle`-grand-jury-transcripts-volume-3](https://archive.org/details/6176274-Nipsey-Hussle-grand-jury-transcripts-volume-3)
+<img   alt="image" src="https://github.com/user-attachments/assets/1c4533f9-0f29-4382-a743-a03513f3fce8" />
+
+
+<img   alt="image @whitehouse @fecgov" src="https://github.com/user-attachments/assets/f21e53e8-8b20-4c4e-8479-982a2992e667" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/06b008a6-664a-4403-82e7-6742672b5588" />
+
+
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A2385700953&color=%230094ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/nasa" title="NASA" target="_blank" style="color: #cccccc; text-decoration: none;">NASA</a> · <a href="https://soundcloud.com/nasa/houston-we-have-a-podcast-3" title="Houston We Have a Podcast: Artemis III Training" target="_blank" style="color: #cccccc; text-decoration: none;">Houston We Have a Podcast: Artemis III Training</a></div>
 
 <img  alt="image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
@@ -21,19 +33,6 @@ I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the 
 @repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/ee73a2fa-4a06-4f2e-9080-166d1fe85a99" />
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/soundcloud%253Aplaylists%253A1860716526&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bonobo" title="bonobo" target="_blank" style="color: #cccccc; text-decoration: none;">bonobo</a> · <a href="https://soundcloud.com/bonobo/sets/expander-121976585" title="Expander" target="_blank" style="color: #cccccc; text-decoration: none;">Expander</a></div>
-
-# [LAna](https://upload.wikimedia.org/wikipedia/commons/4/49/Sura4.pdf?utm_source=en.wikipedia.org&utm_campaign=index&utm_content=original) J Harris
-## HOT 97 News Live! 9/29/26
-[`WATCH` - HOT 97 News Live! 9/29/26 ](https://www.youtube.com/watch?v=DcGXzeKQ6cQ)
-[`SampleCode` @nasa-jpl https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010 @dhs-gov ](https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010) //// [@nasa-jpl @fema @femagov @foratlanta codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) /// [CodePen thakarashard.github.io 5/19 codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) // [archive.org/details/6176274-`Nipsey-Hussle`-grand-jury-transcripts-volume-3](https://archive.org/details/6176274-Nipsey-Hussle-grand-jury-transcripts-volume-3)
-<img   alt="image" src="https://github.com/user-attachments/assets/1c4533f9-0f29-4382-a743-a03513f3fce8" />
-
-[H.E.R. rollover @Blackgirlscode](https://codepen.io/thakasartu/pen/ExLNKyM)
-<img  alt="image" src="https://github.com/user-attachments/assets/4dfe599b-e3ed-4559-8155-951e987fce7b" />
-
-<img   alt="image @whitehouse @fecgov" src="https://github.com/user-attachments/assets/f21e53e8-8b20-4c4e-8479-982a2992e667" />
-
-<img alt="image" src="https://github.com/user-attachments/assets/06b008a6-664a-4403-82e7-6742672b5588" />
 
 # GloRilla Live at MSG [Listen](https://archive.org/details/GloRilla2024-05-21?webamp=default)
 <img  alt="image" src="https://github.com/user-attachments/assets/b91aeb12-b7e5-4666-ac30-24250dec630b" />
@@ -45,6 +44,9 @@ I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the 
 
 <img alt="586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834" src="https://github.com/user-attachments/assets/8d4cf77d-0378-446c-908e-c179d1e32220" />
 <img  alt="586788407-7da4ad9d-24da-40a9-93be-44cdc409c421" src="https://github.com/user-attachments/assets/ecf572e8-e965-43a2-806d-5d3680a3be00" />
+
+[H.E.R. rollover @Blackgirlscode](https://codepen.io/thakasartu/pen/ExLNKyM)
+<img  alt="image" src="https://github.com/user-attachments/assets/4dfe599b-e3ed-4559-8155-951e987fce7b" />
 
 ![https://i1.sndcdn.com/artworks-pTTYEez5J7KK-0-t500x500.jpg](https://i1.sndcdn.com/artworks-pTTYEez5J7KK-0-t500x500.jpg)
 
