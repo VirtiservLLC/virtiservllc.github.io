@@ -5,7 +5,19 @@ mathjax: true
 
 [If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126)
 
+
+
+
+[`WATCH` - NYT Exec Slain By In-Laws, Funeral Home Body Mix-Up & Daycare Gun Scare](https://youtu.be/u1YOlBMFJY8?si=P3IUfSFTWq13QdXJ) /// [`WATCH` - How AI Is Quietly Infiltrating The Government And Your Medical Bills](https://youtu.be/ETGM2yEbyWM?si=t8HC63xIPPb76R-5) ++ [What Is Agentic AI?](https://www.nvidia.com/en-us/solutions/ai/agentic-ai/?ncid=pa-srch-goog-796763&_bt=820160008057&_bk=nvidia%20ai&_bm=p&_bn=g&_bg=199652183512&gad_source=1&gad_campaignid=24115364291&gbraid=0AAAAAD4XAoFOZFTt3W65dmyr3Vu-CwZqE&gclid=EAIaIQobChMI6cnPoLCXlwMV6iFECB1APSHMEAAYAiAAEgLMO_D_BwE)
+
+<img  alt="image (https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la" src="https://github.com/user-attachments/assets/b1e58fef-bda6-4d30-8a44-14b7ffac79d4" />
+
+
+<img   alt="image (https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la" src="https://github.com/user-attachments/assets/fd75c906-56ef-4cd7-a557-64244926b632" />
+
 ![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
+
+[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-cunty-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
 
 <img  alt=" @nasa-jpl @datadesk nasa-worldview-2025 JAN 06-to-2025 JAN 19 (1)" src="https://github.com/user-attachments/assets/cc9ba138-21c6-469e-a8a1-74aefe542bd3" />
 
