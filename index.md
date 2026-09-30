@@ -3,10 +3,13 @@ layout: default
 mathjax: true
 ---
 
-[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv) // [2 Chainz - MFN Right ft. Lil Wayne ](https://youtu.be/vq7QQhrMOwA?si=1cnZu7f_3FFFebOm) // [Shawty Lo - They Know `Dey Know`](https://youtu.be/g_aMmSWd9M8?list=RDg_aMmSWd9M8&t=20) // [ U.O.E.N.O. Rocko - ft. Future, Rick Ross](https://youtu.be/qEkcYsqu6MU?list=RDqEkcYsqu6MU)
+[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv) // [2 Chainz - MFN Right ft. Lil Wayne ](https://youtu.be/vq7QQhrMOwA?si=1cnZu7f_3FFFebOm) // [Shawty Lo - They Know `Dey Know`](https://youtu.be/g_aMmSWd9M8?list=RDg_aMmSWd9M8&t=20) // [ U.O.E.N.O. Rocko - ft. Future, Rick Ross](https://youtu.be/qEkcYsqu6MU?list=RDqEkcYsqu6MU) // [Juicy J - Bandz A Make Her Dance](https://youtu.be/AI0gk2KJeho?list=RDqEkcYsqu6MU&t=48)
 
 
 Mars Perseverance Sol 1977: Front Left Hazard Avoidance Camera (Hazcam) [`link`](https://mars.nasa.gov/mars2020/multimedia/raw-images/FLF_1977_0842453961_800ECM_N0910806FHAZ00203_10_195J)
+
+@nasa-jpl [Juicy J - Bandz A Make Her Dance](https://youtu.be/AI0gk2KJeho?list=RDqEkcYsqu6MU&t=48)
+I wish I had a girlfriend @foratlanta with a body like mine , not sodomized or mutilated @Cityoflosangeles
 ![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01977/ids/edr/browse/fcam/FLF_1977_0842453961_800ECM_N0910806FHAZ00203_10_195J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01977/ids/edr/browse/fcam/FLF_1977_0842453961_800ECM_N0910806FHAZ00203_10_195J01_1200.jpg) 
 
 Mars Perseverance Sol 1994: Front Left Hazard Avoidance Camera (Hazcam) [link](https://mars.nasa.gov/mars2020/multimedia/raw-images/FLF_1994_0843970085_190ECM_N0910970FHAZ00203_07_195J)
