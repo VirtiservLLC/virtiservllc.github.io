@@ -3,10 +3,16 @@ layout: default
 mathjax: true
 ---
 
-[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126)
+[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16)
 
 
 
+@forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , [just doin my job @nasa-pds @nasa-jpl @cityoflosangeles](https://youtu.be/D1DnHTkPlNQ?si=OOIghMH6ae3vYNcO)  
+<img  alt="image @forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , just doin my job @nasa-pds @nasa-jpl @cityoflosangeles  yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj" src="https://github.com/user-attachments/assets/744dae71-99f0-48a2-9f7b-f5969df7b381" />
+
+![@forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , just doin my job @nasa-pds @nasa-jpl @cityoflosangeles  yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
+AI inference—how we experience AI through chatbots, copilots, and creative tools—is scaling at a double exponential pace
 
 [`WATCH` - NYT Exec Slain By In-Laws, Funeral Home Body Mix-Up & Daycare Gun Scare](https://youtu.be/u1YOlBMFJY8?si=P3IUfSFTWq13QdXJ) /// [`WATCH` - How AI Is Quietly Infiltrating The Government And Your Medical Bills](https://youtu.be/ETGM2yEbyWM?si=t8HC63xIPPb76R-5) ++ [What Is Agentic AI?](https://www.nvidia.com/en-us/solutions/ai/agentic-ai/?ncid=pa-srch-goog-796763&_bt=820160008057&_bk=nvidia%20ai&_bm=p&_bn=g&_bg=199652183512&gad_source=1&gad_campaignid=24115364291&gbraid=0AAAAAD4XAoFOZFTt3W65dmyr3Vu-CwZqE&gclid=EAIaIQobChMI6cnPoLCXlwMV6iFECB1APSHMEAAYAiAAEgLMO_D_BwE)
 
