@@ -3,8 +3,17 @@ layout: default
 mathjax: true
 ---
 
-[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16)
+[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv)
 
+
+
+@amd idk who's answering but `Daniel King` @Fiserv is my teacher from New York and he had a new identity in Atlanta @ForAtlanta so about a.i. , my friend on a show on hot97 and she need a professional woman instructor to teach her what Ai is for her news reports, I'm behind and all the mayors need help answering datacenter questions in Los Angeles! - you guys might have my [A+ cert](https://www.comptia.org/en-us/certifications/a/) record for ref @nvidia these are smart kids man at black universities but they got siloed into social websites I got stuck in datacenter jobs and have very little access to people and working wan helpdesk in unix systems at the jet propulsion laboratories Mars and Ocean data @podaac and @nasa-pds the planetary database which is replicated at @Ucla . . . Its just hard to get ppl to slow down man and I know I can get the computing reqs and how to plan and scale for AI at @nasa some old kodger said [AutoNav](https://science.nasa.gov/resource/autonav-drives-perseverance-forward/) is all the ai you need to know  . . . 
+
+[AI inference—how we experience AI through chatbots, copilots, and creative tools—is scaling at a double exponential pace](https://www.nvidia.com/en-us/solutions/ai/inference/?ncid=pa-srch-goog-751328) /// [amd.com/en/solutions/ai.html](https://www.amd.com/en/solutions/ai.html) / / / / [AutoNav Drives Perseverance Forward](https://science.nasa.gov/resource/autonav-drives-perseverance-forward/)
+
+
+[<video  preload="auto" width="auto" height="400px" controls src="https://assets.science.nasa.gov/content/dam/science/psd/mars/videos/2024/6105_PIA25215.mp4" />](https://assets.science.nasa.gov/content/dam/science/psd/mars/videos/2024/6105_PIA25215.mp4)
+<img  alt="image" src="https://github.com/user-attachments/assets/6bd2cd93-fb33-4093-ac42-df731e406c89" />
 
 
 @forATLANTA @Newshour @BLACKGiRLSCode @howard-university-web-services Lana is not on its 4pm , [just doin my job @nasa-pds @nasa-jpl @cityoflosangeles](https://youtu.be/D1DnHTkPlNQ?si=OOIghMH6ae3vYNcO)  
