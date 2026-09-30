@@ -6,6 +6,27 @@ mathjax: true
 
 ![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
 
+
+
+## Checking In On Pacific Palisades With Councilmember Traci Park
+ [WATCH - youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR](https://youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR)
+@Datadesk @nasa-pds @Cityoflosangeles _@USGS_
+There are no shortcuts for rebuilding the Pacific Palisades. Even those who are returning are daunted by the task, wondering who else will come back, and nervous about the hidden dangers of the toxic debris produced by the fire. Homes are starting to go up, and there is a plan for at least some of those third spaces – the elementary schools, the high school, and the community center. But affordability is still a big hurdle that will determine whether people can return, and there are still a lot of questions about how to make the community safer when the next disaster strikes. There is also a lot of anger about why any of this was allowed to happen in the first place — most of it is directed at L.A. Mayor Karen Bass. By contrast, the Palisades’ elected city councilmember Traci Park is seen by many residents as a champion. She joins Kate to talk about what’s next for the area. Guest: Traci Park, L.A. City Councilmember, 11th District. Pacific Palisades Vision Plan:
+[@CityOfLosAngeles @StateOfCalifornia @LaCDMH cd11.lacity.gov/news/pacific-palisades-rebuild-vision](https://cd11.lacity.gov/news/pacific-palisades-rebuild-vision)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/71792f68-de83-4396-aa36-eed4b21e06db" />
+
+![https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG](https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG)
+
+
+EMIT_L1B_RAD_001_20260529T193508_2614913_003 @emit-sds @la-county-isd @nasa-jpl @CiTYOFLOSANGELES
+<img   alt="EMIT_L1B_RAD_001_20260529T193508_2614913_003 586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
+  games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
+I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
+@repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/5607e59f-9f27-4024-bda8-135a016d4448" />
+
+
+
 <img alt="586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
   games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
 I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
@@ -18,6 +39,28 @@ I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the 
   games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
 I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
 @repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/61787244-638b-4ae2-919f-4a5109b23c67" />
+
+
+# Writing mathematical expressions
+
+Use Markdown to display mathematical expressions on GitHub. [GitHubDoc](https://docs.github.com/en/get-started/writing-on-github/working-with-advanced-formatting/writing-mathematical-expressions) @la-county-isd [Supervisor Janice Hahn](https://www.youtube.com/@SupJaniceHahn) // [@SupervisorLindseyP.Horvath](https://www.youtube.com/channel/UC1nFvaK_2b6u8eQ0XU_OFbQ)
+
+`**The Cauchy-Schwarz Inequality**`\
+$$\left( \sum_{k=1}^n a_k b_k \right)^2 \leq \left( \sum_{k=1}^n a_k^2 \right) \left( \sum_{k=1}^n b_k^2 \right)$$
+
+**The Cauchy-Schwarz Inequality**
+
+```math
+\left( \sum_{k=1}^n a_k b_k \right)^2 \leq \left( \sum_{k=1}^n a_k^2 \right) \left( \sum_{k=1}^n b_k^2 \right)+
+This expression uses `\$` to display a dollar sign: $`\sqrt{\$4}`$
+```
+
+# $a^2 + b^2 = c^2$
+## $ x = {-b \pm \sqrt{b^2-4ac} \over 2a} $
+$$\begin{eqnarray}
+x' &=& &x \sin\phi &+& z \cos\phi \\
+z' &=& - &x \cos\phi &+& z \sin\phi \\
+\end{eqnarray}$$
 
 [https://modis.gsfc.nasa.gov/](https://modis.gsfc.nasa.gov/) 
 ![https://assets.science.nasa.gov/dynamicimage/assets/science/esd/earth-observer/2025/2025-final-reflections/terra_instruments.png?w=1440&h=627&fit=clip&crop=faces%2Cfocalpoint](https://assets.science.nasa.gov/dynamicimage/assets/science/esd/earth-observer/2025/2025-final-reflections/terra_instruments.png?w=1440&h=627&fit=clip&crop=faces%2Cfocalpoint)
@@ -1272,17 +1315,6 @@ NASA Official: Doug Newman @chloebaileywashere @disney @hulu
 <img  alt="image @Datadesk @nasa-pds @Cityoflosangeles _@USGS_ " src="https://github.com/user-attachments/assets/c19a14bf-d6a2-42a1-9534-c6dc41d6d9a6" />
 
 
-## Checking In On Pacific Palisades With Councilmember Traci Park
- [WATCH - youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR](https://youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR)
-@Datadesk @nasa-pds @Cityoflosangeles _@USGS_
-There are no shortcuts for rebuilding the Pacific Palisades. Even those who are returning are daunted by the task, wondering who else will come back, and nervous about the hidden dangers of the toxic debris produced by the fire. Homes are starting to go up, and there is a plan for at least some of those third spaces – the elementary schools, the high school, and the community center. But affordability is still a big hurdle that will determine whether people can return, and there are still a lot of questions about how to make the community safer when the next disaster strikes. There is also a lot of anger about why any of this was allowed to happen in the first place — most of it is directed at L.A. Mayor Karen Bass. By contrast, the Palisades’ elected city councilmember Traci Park is seen by many residents as a champion. She joins Kate to talk about what’s next for the area. Guest: Traci Park, L.A. City Councilmember, 11th District. Pacific Palisades Vision Plan:
-[@CityOfLosAngeles @StateOfCalifornia @LaCDMH cd11.lacity.gov/news/pacific-palisades-rebuild-vision](https://cd11.lacity.gov/news/pacific-palisades-rebuild-vision)
-
-<img  alt="image" src="https://github.com/user-attachments/assets/71792f68-de83-4396-aa36-eed4b21e06db" />
-
-![https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG](https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG)
-
-
 # Writing mathematical expressions
 
 Use Markdown to display mathematical expressions on GitHub. [GitHubDoc](https://docs.github.com/en/get-started/writing-on-github/working-with-advanced-formatting/writing-mathematical-expressions) @la-county-isd [Supervisor Janice Hahn](https://www.youtube.com/@SupJaniceHahn) // [@SupervisorLindseyP.Horvath](https://www.youtube.com/channel/UC1nFvaK_2b6u8eQ0XU_OFbQ)
@@ -1303,7 +1335,6 @@ $$\begin{eqnarray}
 x' &=& &x \sin\phi &+& z \cos\phi \\
 z' &=& - &x \cos\phi &+& z \sin\phi \\
 \end{eqnarray}$$
-
 
 Text can be **bold**, _italic_, or ~~strikethrough~~.
 
