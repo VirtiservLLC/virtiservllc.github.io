@@ -3,6 +3,11 @@ layout: default
 mathjax: true
 ---
 
+[@ForAtlanta firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-85.2,34.7,8.0z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-85.2,34.7,8.0z)
+<img  alt="image" src="https://github.com/user-attachments/assets/eb51b87f-faa5-476f-94ee-8cbe76100ae4" />
+
+@ForAtlanta & @CHicago [Import `MODIS 1km` firms.modaps. @eosdis .nasa.gov](https://firms.modaps.eosdis.nasa.gov/api/kml_fire_footprints/) to get this view in [@Google Earth](https://earth.google.com/web/@33.56964493,-86.64336989,555.00466153a,914711.95556134d,35y,355.00242322h,0t,0r/data=CgRCAggBMikKJwolCiExOVNoMzRzalljWkd2ckVjRUdKWFZrTU5rRlJDTDBlV1cgAToDCgEwQgIIAEoICO2xjqEBEAE)
+<img  alt="image" src="https://github.com/user-attachments/assets/b191e169-053d-4358-938c-f26af88e8b22" />
 
 @nasa-jpl @nasa-pds [sphereX](https://spherex.caltech.edu/) is transmitting tell the schools that care @Blackgirlscode [@eodis-nasa @doug-newman-nasa](https://scan-now.gsfc.nasa.gov/scan) share that with earthdata people, its a near space network monitoring tool @ESA that's insight into iss transmissions you may be missing @caltech [scan-now.gsfc.nasa.gov/scan](https://scan-now.gsfc.nasa.gov/scan)
 <img alt="image" src="https://github.com/user-attachments/assets/5443ffb8-6ed0-4d65-aec9-df0b0b7935df" />
