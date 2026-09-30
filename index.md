@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv)
+[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv) // [2 Chainz - MFN Right ft. Lil Wayne ](https://youtu.be/vq7QQhrMOwA?si=1cnZu7f_3FFFebOm) // [Shawty Lo - They Know `Dey Know`](https://youtu.be/g_aMmSWd9M8?list=RDg_aMmSWd9M8&t=20)
 
 
 
