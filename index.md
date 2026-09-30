@@ -29,12 +29,15 @@ mathjax: true
 ### [Xi Jinping](https://en.qstheory.cn/xijinping.html) [DC Visit](https://www.cfr.org/articles/xi-jinping-visits-the-white-house), Iran Peace Plan & AI False Alarm  The Lana Rundown
 [📺`WHoKnew?` - youtu.be/l7D7UV1DZA8?t=66📺](https://youtu.be/l7D7UV1DZA8?t=66)
 
-EMIT_L2A_RFL_001_20260825T053830_2623704_009 
-[search.earthdata.nasa.gov/search/granules=emit&sb](https://search.earthdata.nasa.gov/search/granules?p=C2408750690-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&g=G4290004740-LPCLOUD&q=emit&sb[0]=46.57987%2C19.27415%2C61.71323%2C33.65613&lat=26.9126911&long=56.7159510954023&zoom=8.374752377817527)
 
 <img   alt="image" src="https://github.com/user-attachments/assets/1dbfa3d9-65b8-475c-9211-9a92837e9256" />
 
 [Emit-sds](https://earth.jpl.nasa.gov/emit/) /// [Iran](https://www.war.gov/News/Tag/47531/iran/)
+
+EMIT_L2A_RFL_001_20260825T053830_2623704_009 
+
+[search.earthdata.nasa.gov/search/granules=emit&sb](https://search.earthdata.nasa.gov/search/granules?p=C2408750690-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&g=G4290004740-LPCLOUD&q=emit&sb[0]=46.57987%2C19.27415%2C61.71323%2C33.65613&lat=26.9126911&long=56.7159510954023&zoom=8.374752377817527)
+
 <img  alt="image" src="https://github.com/user-attachments/assets/dd5f86a8-518d-42da-905a-25838a88e922" />
 
 <img  alt="EMIT_L2A_RFL_001_20260825T053830_2623704_009" src="https://github.com/user-attachments/assets/d8c57ad3-32ae-4e3f-898e-4a60dc5f3649" />
