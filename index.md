@@ -25,6 +25,13 @@ mathjax: true
 
 
 # [LAna](https://upload.wikimedia.org/wikipedia/commons/4/49/Sura4.pdf?utm_source=en.wikipedia.org&utm_campaign=index&utm_content=original) J Harris
+
+### [Xi Jinping](https://en.qstheory.cn/xijinping.html) [DC Visit](https://www.cfr.org/articles/xi-jinping-visits-the-white-house), Iran Peace Plan & AI False Alarm | The Lana Rundown
+[📺`WHoKnew?` - youtu.be/l7D7UV1DZA8?t=66📺](https://youtu.be/l7D7UV1DZA8?t=66)
+<img   alt="image" src="https://github.com/user-attachments/assets/1dbfa3d9-65b8-475c-9211-9a92837e9256" />
+
+![https://assets.cfr.org/images/t_cfr_3_2/f_auto/w_1440/v1790177688/2026-09-16T155046Z_1653937296_RC2FKNAE2K6P_RTRMADP_3_USA-TRUMP-XI/2026-09-16T155046Z_1653937296_RC2FKNAE2K6P_RTRMADP_3_USA-TRUMP-XI.jpg](https://assets.cfr.org/images/t_cfr_3_2/f_auto/w_1440/v1790177688/2026-09-16T155046Z_1653937296_RC2FKNAE2K6P_RTRMADP_3_USA-TRUMP-XI/2026-09-16T155046Z_1653937296_RC2FKNAE2K6P_RTRMADP_3_USA-TRUMP-XI.jpg) 
+
 ## HOT 97 News Live! 9/29/26
 [`WATCH` - HOT 97 News Live! 9/29/26 ](https://www.youtube.com/watch?v=DcGXzeKQ6cQ)
 [`SampleCode` @nasa-jpl https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010 @dhs-gov ](https://codepen.io/thakasartu/pen/ZYeJJmP?editors=1010) //// [@nasa-jpl @fema @femagov @foratlanta codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) /// [CodePen thakarashard.github.io 5/19 codepen.io/thakasartu/pen/jEOeKaP](https://codepen.io/thakasartu/pen/jEOeKaP) // [archive.org/details/6176274-`Nipsey-Hussle`-grand-jury-transcripts-volume-3](https://archive.org/details/6176274-Nipsey-Hussle-grand-jury-transcripts-volume-3)
