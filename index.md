@@ -7,7 +7,10 @@ mathjax: true
 
 
 
-@forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , [just doin my job @nasa-pds @nasa-jpl @cityoflosangeles](https://youtu.be/D1DnHTkPlNQ?si=OOIghMH6ae3vYNcO)  
+@forATLANTA @Newshour @BLACKGiRLSCode @howard-university-web-services Lana is not on its 4pm , [just doin my job @nasa-pds @nasa-jpl @cityoflosangeles](https://youtu.be/D1DnHTkPlNQ?si=OOIghMH6ae3vYNcO)  
+[`HOMEPAGE` @ForAtlanta @Newshour hot97.com/atlanta-news/](https://www.hot97.com/atlanta-news/)
+![https://www.hot97.com/wp-content/uploads/sites/2/2025/12/HOT97-ATL-NEWS-740.png](https://www.hot97.com/wp-content/uploads/sites/2/2025/12/HOT97-ATL-NEWS-740.png) 
+
 <img  alt="image @forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , just doin my job @nasa-pds @nasa-jpl @cityoflosangeles  yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj" src="https://github.com/user-attachments/assets/744dae71-99f0-48a2-9f7b-f5969df7b381" />
 
 ![@forATLANTA @Newshour @BLACKGiRLSCode @howarduniversity-web-services Lana is not on its 4pm , just doin my job @nasa-pds @nasa-jpl @cityoflosangeles  yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
