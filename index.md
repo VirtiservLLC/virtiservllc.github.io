@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // 
+[If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB)
 
 ![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
 
