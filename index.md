@@ -3,6 +3,10 @@ layout: default
 mathjax: true
 ---
 
+[https://modis.gsfc.nasa.gov/](https://modis.gsfc.nasa.gov/) 
+![https://assets.science.nasa.gov/dynamicimage/assets/science/esd/earth-observer/2025/2025-final-reflections/terra_instruments.png?w=1440&h=627&fit=clip&crop=faces%2Cfocalpoint](https://assets.science.nasa.gov/dynamicimage/assets/science/esd/earth-observer/2025/2025-final-reflections/terra_instruments.png?w=1440&h=627&fit=clip&crop=faces%2Cfocalpoint)
+<img alt="image" src="https://github.com/user-attachments/assets/0dd1000f-226a-42f9-a1a5-9ec8e22b7338" />
+
 [@ForAtlanta firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-85.2,34.7,8.0z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-85.2,34.7,8.0z)
 <img  alt="image" src="https://github.com/user-attachments/assets/eb51b87f-faa5-476f-94ee-8cbe76100ae4" />
 
