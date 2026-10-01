@@ -17,7 +17,7 @@ mathjax: true
 
 <img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
 
-![`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw https://youtu.be/iCyc47ENAYw @deptofwar @Stateofcalifornia ](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
+![WATCH @CityOFLosangeles - youtu.be/iCyc47ENAYw https://youtu.be/iCyc47ENAYw @deptofwar @Stateofcalifornia ](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
 ![https://www.whitehouse.gov/wp-content/uploads/2025/06/President-Donald-Trump-Official-Presidential-Portrait.png @CityOFLosangeles - youtu.be/iCyc47ENAYw https://youtu.be/iCyc47ENAYw @deptofwar @Stateofcalifornia @whitehouse](https://www.whitehouse.gov/wp-content/uploads/2025/06/President-Donald-Trump-Official-Presidential-Portrait.png)
 
 # HOT 97 News 9/30/26
