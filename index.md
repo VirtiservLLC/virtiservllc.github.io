@@ -9,7 +9,7 @@ mathjax: true
 ---
 
 
-# [Karen Bass](https://www.congress.gov/member/karen-bass/B001270) Faces Jason Lee: LA Fires, Trump, Homelessness & the Election 
+# [Karen Bass](https://www.congress.gov/member/karen-bass/B001270) Faces [Jason Lee](https://www.instagram.com/theonlyjasonlee/?hl=en): [LA Fires](https://ra5hard.github.io/2026/05/30/Los-Angeles-County-Fire_Data.html), Trump, Homelessness & the Election 
 [The Jason Lee Show](https://www.bet.com/hip-hop-awards/shows/roe5kz/the-jason-lee-show)
 [`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw](https://youtu.be/iCyc47ENAYw) 
 @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency ... sup [Pete ?!?!?! @Deptofwar](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) // [congress.gov/member/`karen-bass`/B001270](https://www.congress.gov/member/karen-bass/B001270) @Libraryofcongress [newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military](https://newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military)
