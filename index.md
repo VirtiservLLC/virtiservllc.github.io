@@ -12,7 +12,7 @@ mathjax: true
 # Karen Bass Faces Jason Lee: LA Fires, Trump, Homelessness & the Election 
 [The Jason Lee Show](https://www.bet.com/hip-hop-awards/shows/roe5kz/the-jason-lee-show)
 [`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw](https://youtu.be/iCyc47ENAYw)
-@ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency
+@ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency ... sup Pete ?!?!?! @Deptofwar
 <img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
 
 ![https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn](https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn) 
