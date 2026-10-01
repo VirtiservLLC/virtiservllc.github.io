@@ -9,6 +9,14 @@ mathjax: true
 ---
 
 
+# Karen Bass Faces Jason Lee: LA Fires, Trump, Homelessness & the Election 
+[The Jason Lee Show](https://www.bet.com/hip-hop-awards/shows/roe5kz/the-jason-lee-show)
+[`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw](https://youtu.be/iCyc47ENAYw)
+@ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency
+<img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
+
+![https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn](https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn) 
+
 # HOT 97 News 9/30/26
 [`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
 @whitehouse @blackgirlscode Lana Harris did you get mad at me because I said you offended some Christian woman? It was the feed on your show, I was not unmerciful but it was nothing I tracked, it was things I would have not gotten offended by, but understood. Its your teleprompter and cleavage... [`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
