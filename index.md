@@ -2,6 +2,11 @@
 layout: default
 mathjax: true
 ---
+///// [“I Gave Diddy Head In 2021” Jason Lee Reveals Everything 😳](https://youtu.be/RoCTpF8t7-c)
+<img   alt="image" src="https://github.com/user-attachments/assets/7ec97a6b-cc22-445d-9250-14988ef6ff49" />
+
+# Kuwait City @Howard-univeristy-web-services
+<img   alt=" Kuwait City @Howard-univeristy-web-services @emit-sds latrice EMIT_L1B_RAD_001_20260530T075631_2615005_003" src="https://github.com/user-attachments/assets/7d2aaf3d-2010-4aa4-b318-cb7c94abe54f" />
 
 
 [Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-county-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
