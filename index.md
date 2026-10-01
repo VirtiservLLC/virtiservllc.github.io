@@ -12,10 +12,11 @@ mathjax: true
 # Karen Bass Faces Jason Lee: LA Fires, Trump, Homelessness & the Election 
 [The Jason Lee Show](https://www.bet.com/hip-hop-awards/shows/roe5kz/the-jason-lee-show)
 [`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw](https://youtu.be/iCyc47ENAYw)
-@ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency ... sup Pete ?!?!?! @Deptofwar
+@ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency ... sup [Pete ?!?!?! @Deptofwar](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) [newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military](https://newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military)
 <img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
 
-![https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn](https://images.paramount.tech/uri/mgid:arc:imageassetref:bet.com:c192799e-3cc4-476c-bf12-707358886431?quality=0.7&gen=ntrn) 
+![https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
+
 
 # HOT 97 News 9/30/26
 [`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
