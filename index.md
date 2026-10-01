@@ -4,15 +4,26 @@ mathjax: true
 ---
 
 
+<img alt="image" src="https://github.com/user-attachments/assets/02e4704a-c205-4fed-bc36-294af61481bc" />
+[@nasa eol.jsc.nasa.gov/collections/Disasters/ShowDisastersCollection.pl](https://eol.jsc.nasa.gov/collections/Disasters/ShowDisastersCollection.pl) @nasa @deptofwar hi its -  [Rashad](https://ra5hard.github.io/) I'm trying to find our order form for iSS Imagery request at [Johnson https://eol.jsc.nasa.gov/RequestNewImagery/](https://eol.jsc.nasa.gov/RequestNewImagery/) <~ there is [Traci Park](mailto:councilmember.park@lacity.org), [Lindsey Horovath](mailto:ThirdDistrict@bos.lacounty.gov) [@nasa-jpl lindseyhorvath.lacounty.gov/meet-team-lindsey/?](https://lindseyhorvath.lacounty.gov/meet-team-lindsey/?) I know you with [National Weather Service @weather-gov](https://www.weather.gov/) so that means you are in my support matrix, I was trying to make an order for Malibu and long beach I don't know if [Rex Richardson](https://www.joinrexrichardson.com/) is monitoring but I know [Ms Bass](https://mayor.lacity.gov/about-mayor-karen-bass) (Mrs if Jeffery ain't dead) need the Imagery for all the damage since its one county @la-county-isd , here is my fire data [ra5hard.github.io/2026/09/30/Los-Angeles-County-Fire_Data](https://ra5hard.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html) @CityOFLosAngeles [Traci Park](https://cd11.lacity.gov/about/traci-park) the images may be here but I want fresh shit and this tool might do it [@datadesk palewi.re/docs/noaa-wildfires/](https://palewi.re/docs/noaa-wildfires/) 
 
+[@blackgirlscode darpa.mil/research/programs/translating-all-c-to-rust](https://www.darpa.mil/research/programs/translating-all-c-to-rust) // [NOAA Launches Wildfire Data Portal, Expanding Public Access to Satellite Fire Information](https://www.nesdis.noaa.gov/news/noaa-launches-wildfire-data-portal-expanding-public-access-satellite-fire-information)
 
-[<video  poster="https://sdo.gsfc.nasa.gov/assets/img/latest/latest_2048_0193.jpg" controls preload="auto" width="auto" height="400px" controls src="https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4" />](https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4)
+![https://cd11.lacity.gov/sites/g/files/wph2151/files/CD11_Logo_Traci-Park_370x100.svg](https://cd11.lacity.gov/sites/g/files/wph2151/files/CD11_Logo_Traci-Park_370x100.svg)
+
+![https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png](https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png) 
 
 @nasa-jpl I need to put in an order @NOAAgov for long beach hurricane damage images @doug-newman-nasa @eodis-nasa - [Rashad](https://ra5hard.github.io/) [linkedin.com/in/maryellen-sault-gisp-8410a97a](https://www.linkedin.com/in/maryellen-sault-gisp-8410a97a)
 [nesdis.noaa.gov/imagery/interactive-maps/visible-infrared-imagery](https://www.nesdis.noaa.gov/imagery/interactive-maps/visible-infrared-imagery) // [enviroatlas.epa.gov/enviroatlas/interactivemap/](https://enviroatlas.epa.gov/enviroatlas/interactivemap/) @JHUAPL gm [SDO](https://sdo.gsfc.nasa.gov/data/) imagery lateest image  is from  9/20   todays is `jekyll.version`  {{ jekyll.version }}
 {{ site.time | date: '%B %d, %Y' }}
 {{ site.time }}
 
+![https://www.weather.gov/bundles/templating/images/header/header.png](https://www.weather.gov/bundles/templating/images/header/header.png) 
+
+[<video  poster="https://sdo.gsfc.nasa.gov/assets/img/latest/latest_2048_0193.jpg" controls preload="auto" width="auto" height="400px" controls src="https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4" />](https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4)
+
+@blackgirlscode this album got a lot of bad ideas but sounds amazing if you in brandy hip-hop classes, just try to slow ppl down from hurting ppl... pay attention I see ur comments! 
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A668427506&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/7frogg" title="7frogg" target="_blank" style="color: #cccccc; text-decoration: none;">7frogg</a> · <a href="https://soundcloud.com/7frogg/raekwon-only-built-4-cuban-linx-full" title="RAEKWON - ONLY BUILT 4 CUBAN LINX [FULL]" target="_blank" style="color: #cccccc; text-decoration: none;">RAEKWON - ONLY BUILT 4 CUBAN LINX [FULL]</a></div>
 
 ///// [“I Gave Diddy Head In 2021” Jason Lee Reveals Everything 😳](https://youtu.be/RoCTpF8t7-c)
 <img   alt="image" src="https://github.com/user-attachments/assets/7ec97a6b-cc22-445d-9250-14988ef6ff49" />
