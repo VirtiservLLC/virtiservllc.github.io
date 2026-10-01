@@ -3,8 +3,21 @@ layout: default
 mathjax: true
 ---
 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/7c3879f6-4826-4ca8-af82-6774d1b0cf4e" />
+
+[`WATCH` - Brandi Glanville Launches AI Digital Twin For Fans To Date](https://youtu.be/zkNKxXbqzkM) // [Brandi Glanville](https://www.eonline.com/news/1436435/brandi-glanville-sent-home-from-special-forces-after-injury) // [`WATCH` - Ex-Pastor & American Idol Star Caleb Flynn On Trial For Wife's Murder](https://youtu.be/X6KF1zGEPVk) /////////////////////////// [Former American Idol contestant and pastor found guilty of murdering wife @bbc ](https://www.bbc.com/news/articles/c5rm9gv7n07xo) // [Former 'American Idol' contestant found guilty of murdering wife](https://abcnews.com/US/caleb-flynn-former-american-idol-contestant-murder-trial-wife-closing-arguments/story?id=136849417) // [Pastor Husband Charged in Wife’s Twisted Murder](https://youtu.be/oQQJvK9KOg4?si=bM9RVe2hfbp6xVWX) // @nasa hi [hot97.com/tv/](https://www.hot97.com/tv/) // [The TRAGIC Downfall of Brandi Glanville](https://youtu.be/-4dtk_sNNf8) // [Brandi Glanville imdb.com/name/nm4541706/](https://www.imdb.com/name/nm4541706/)
+
+[@tiktok .com/@brandiglanvilleofficial?lang=en](https://www.tiktok.com/@brandiglanvilleofficial?lang=en)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/4a18fa8f-865c-45fb-8a2e-b4cfa9e8562c" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/112075c7-e2ad-460a-8524-65a173ed9238" />
+
+![https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
 # DiSCOVR:EPiC
-@nasa-develop hello [Langley](https://www.nasa.gov/langley/) its [rashard](https://ra5hard.github.io/hurricanemarie) from @nasa-jpl @eodis-nasa discover epic is late [epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg](https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg) this pic is [2026-09-28](https://epic.gsfc.nasa.gov/) today is {{ site.time | date: '%B %d, %Y' }} `jekyll.version`  {{ jekyll.version }} @Doug-newman-nasa @nbcnews @Cbs-news-data 
+@nasa-develop hello [Langley](https://www.nasa.gov/langley/) its [rashard](https://ra5hard.github.io/hurricanemarie) from @nasa-jpl @eodis-nasa discover epic is late [epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg](https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg) this pic is [2026-09-28](https://epic.gsfc.nasa.gov/) today is {{ site.time | date: '%B %d, %Y' }} `jekyll.version`  {{ jekyll.version }} @Doug-newman-nasa @nbcnews @Cbs-news-data  
 
 ![https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928204342.jpg](https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928204342.jpg) 
 
