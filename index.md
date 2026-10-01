@@ -6,7 +6,7 @@ mathjax: true
 
 
 
-[<video  poster="https://sdo.gsfc.nasa.gov/assets/img/latest/latest_2048_0193.jpg" preload="auto" width="auto" height="400px" controls src="https://sdo.gsfc.nasa.gov/data/latest48.php?q=0193" />](https://sdo.gsfc.nasa.gov/data/latest48.php?q=0193)
+[<video  poster="https://sdo.gsfc.nasa.gov/assets/img/latest/latest_2048_0193.jpg" controls preload="auto" width="auto" height="400px" controls src="https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4" />](https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4)
 
 @nasa-jpl I need to put in an order @NOAAgov for long beach hurricane damage images @doug-newman-nasa @eodis-nasa - [Rashad](https://ra5hard.github.io/) [linkedin.com/in/maryellen-sault-gisp-8410a97a](https://www.linkedin.com/in/maryellen-sault-gisp-8410a97a)
 [nesdis.noaa.gov/imagery/interactive-maps/visible-infrared-imagery](https://www.nesdis.noaa.gov/imagery/interactive-maps/visible-infrared-imagery) // [enviroatlas.epa.gov/enviroatlas/interactivemap/](https://enviroatlas.epa.gov/enviroatlas/interactivemap/) @JHUAPL gm [SDO](https://sdo.gsfc.nasa.gov/data/) imagery lateest image  is from  9/20   todays is `jekyll.version`  {{ jekyll.version }}
