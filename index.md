@@ -13,6 +13,10 @@ this pic is [2026-09-28](https://epic.gsfc.nasa.gov/) today is {{ site.time | da
 ![https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg](https://epic.gsfc.nasa.gov/archive/natural/2026/09/28/jpg/epic_1b_20260928005515.jpg) 
 
  ### Hurricane Marie @la-county-isd @nasa-jpl\
+[2026-09-06 - epic.gsfc.nasa.gov](https://epic.gsfc.nasa.gov/?date=2026-09-06) today is {{ site.time | date: '%B %d, %Y' }} `jekyll.version`  {{ jekyll.version }}
+
+ ![https://epic.gsfc.nasa.gov/archive/natural/2026/09/06/jpg/epic_1b_20260906224103.jpg](https://epic.gsfc.nasa.gov/archive/natural/2026/09/06/jpg/epic_1b_20260906224103.jpg) 
+ 
 [Hurricane-Marie-Damage-Imagery](#Hurricane-Marie-Damage-Imagery)
 [@cityoflosangles @la-county-isd @weather-gov ra5hard.github.io/`hurricanemarie`](https://ra5hard.github.io/hurricanemarie) /// [ @usgs earthexplorer.usgs.gov/](https://earthexplorer.usgs.gov/) @usgs if you search for [Linsey Horovath @CityOfLosAngeles](https://www.ioes.ucla.edu/person/lindsey-horvath/) in this document you will see a ticket started to update the west coast for hurricane damage [`Hurricane-Marie-Damage-Imagery`](#Hurricane-Marie-Damage-Imagery) I'm still learning Eros @doug-newman-nasa and looking for options to update the data pipeline @nasa-giss @StateOFCalifornia // [nesdis.noaa.gov/imagery/hurricanes/ `2026-hurricane-season-media-gallery`](https://www.nesdis.noaa.gov/imagery/hurricanes/2026-hurricane-season-media-gallery) // [weather.ndc. @nasa .gov/goes/](https://weather.ndc.nasa.gov/goes/) // [modis.gsfc.nasa.gov/gallery/](https://modis.gsfc.nasa.gov/gallery/) // [@Emit-sds ecostress.jpl.nasa.gov/gallerylist](https://ecostress.jpl.nasa.gov/gallerylist) // [nesdis.noaa.gov/imagery/satellite-maps/`earth-real-time`](https://www.nesdis.noaa.gov/imagery/satellite-maps/earth-real-time) [nesdis.noaa.gov/imagery/hurricanes/ `2026-hurricane-season-media-gallery`](https://www.nesdis.noaa.gov/imagery/hurricanes/2026-hurricane-season-media-gallery) // [Anchors in Markdown @Blackgirlscode @nasa-jpL @CityOfLosAngeles `Karen Bass`](https://gist.github.com/asabaylus/3071099)
 
