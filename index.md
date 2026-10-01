@@ -3,6 +3,22 @@ layout: default
 mathjax: true
 ---
 
+
+["Free @ra5hard @nasa-pds" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB)
+
+---
+
+
+# HOT 97 News 9/30/26
+[`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
+@whitehouse @blackgirlscode Lana Harris did you get mad at me because I said you offended some Christian woman? It was the feed on your show, I was not unmerciful but it was nothing I tracked, it was things I would have not gotten offended by, but understood. Its your teleprompter and cleavage... [`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
+@DeptOfWar her brother hangs out at parties and she has her own life in entertaining, please listen slow @cia she still from Africa and gets vandalized all the time by fellow journalist @Cityoflosangeles @foratlanta hi @nasa-jpl she is my [friend](https://www.instagram.com/lanajharris/?hl=en) @nasa-pds I don't think she would vandalize my YouTube account, but the fact that her newscast was not published as live at the normal time makes me curious @howard-university-web-services please check on her [ latrice.byam@howard.edu](mailto:latrice.byam@howard.edu) and I have a new set of horrible blisters @nasa @lacountyyDPH @nasa-giss @eodis-nasa @doug-newman-nasa 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/85baf6ea-efa2-475b-942d-4e3989df01f9" />
+[`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k) // [`CHANNEL` - youtube.com/@hot97/videos](https://www.youtube.com/@hot97/videos)
+<img  alt="image" src="https://github.com/user-attachments/assets/19043cc0-f103-4a5d-9671-ec947517f8ea" />
+
+
 [If You Play Your Cards Right · Alicia Myers](https://youtu.be/5a7wWaaJL44?list=RD5a7wWaaJL44) // ["Free" by Deniece Williams](https://youtu.be/OlLrn6AVV2s?si=zqo_6LbEG2gaEVBB) // [Adeniji · The Budos Band `4-Lana` @blackgirlscode](https://youtu.be/mM0WZf_qJxA?list=RDmM0WZf_qJxA&t=126) // [Doin' My Job · T.I.](https://youtu.be/D1DnHTkPlNQ?list=RDD1DnHTkPlNQ&t=16) // [ASAP · T.I.](https://youtu.be/ghr_sRZWj5w?list=RDD1DnHTkPlNQ&t=16) // [Hustle Gang - Friends ft. T.I., RaRa, Brandon Rossi, Tokyo Jetz, Trae Tha Truth, Young Dro](https://youtu.be/AAPNvCn0k00?list=RDAAPNvCn0k00&t=17) // [Hustle Gang - Here I Go (ft. Mystikal)](https://youtu.be/urHjlL-6pXk?si=HUhTce1XrGU9JmGv) // [2 Chainz - MFN Right ft. Lil Wayne ](https://youtu.be/vq7QQhrMOwA?si=1cnZu7f_3FFFebOm) // [Shawty Lo - They Know `Dey Know`](https://youtu.be/g_aMmSWd9M8?list=RDg_aMmSWd9M8&t=20) // [ U.O.E.N.O. Rocko - ft. Future, Rick Ross](https://youtu.be/qEkcYsqu6MU?list=RDqEkcYsqu6MU) // [Juicy J - Bandz A Make Her Dance](https://youtu.be/AI0gk2KJeho?list=RDqEkcYsqu6MU&t=48)
 
 
