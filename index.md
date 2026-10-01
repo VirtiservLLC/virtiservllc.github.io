@@ -4,12 +4,13 @@ mathjax: true
 ---
 
 
-### Hurricane Marie @la-county-isd @nasa-jpl
+### Hurricane Marie @la-county-isd @nasa-jpl\
+[Hurricane-Marie-Damage-Imagery](#Hurricane-Marie-Damage-Imagery)
 [@cityoflosangles @la-county-isd @weather-gov ra5hard.github.io/`hurricanemarie`](https://ra5hard.github.io/hurricanemarie)
 [nesdis.noaa.gov/imagery/hurricanes/ `2026-hurricane-season-media-gallery`](https://www.nesdis.noaa.gov/imagery/hurricanes/2026-hurricane-season-media-gallery)
 ![https://www.nesdis.noaa.gov/s3/2026-09/20260904_Marie.png](https://www.nesdis.noaa.gov/s3/2026-09/20260904_Marie.png)
 
-[nesdis.noaa.gov/imagery/hurricanes/ `2026-hurricane-season-media-gallery`](https://www.nesdis.noaa.gov/imagery/hurricanes/2026-hurricane-season-media-gallery) // [weather.ndc. @nasa .gov/goes/](https://weather.ndc.nasa.gov/goes/) // [modis.gsfc.nasa.gov/gallery/](https://modis.gsfc.nasa.gov/gallery/) // [@Emit-sds ecostress.jpl.nasa.gov/gallerylist](https://ecostress.jpl.nasa.gov/gallerylist) // [nesdis.noaa.gov/imagery/satellite-maps/`earth-real-time`](https://www.nesdis.noaa.gov/imagery/satellite-maps/earth-real-time)
+[nesdis.noaa.gov/imagery/hurricanes/ `2026-hurricane-season-media-gallery`](https://www.nesdis.noaa.gov/imagery/hurricanes/2026-hurricane-season-media-gallery) // [weather.ndc. @nasa .gov/goes/](https://weather.ndc.nasa.gov/goes/) // [modis.gsfc.nasa.gov/gallery/](https://modis.gsfc.nasa.gov/gallery/) // [@Emit-sds ecostress.jpl.nasa.gov/gallerylist](https://ecostress.jpl.nasa.gov/gallerylist) // [nesdis.noaa.gov/imagery/satellite-maps/`earth-real-time`](https://www.nesdis.noaa.gov/imagery/satellite-maps/earth-real-time) [ @usgs earthexplorer.usgs.gov/](https://earthexplorer.usgs.gov/) @usgs if you search for [Linsey Horovath @CityOfLosAngeles](https://www.ioes.ucla.edu/person/lindsey-horvath/) in this document you will see a ticket started to update the west coast for hurricane damage [`Hurricane-Marie-Damage-Imagery`](#Hurricane-Marie-Damage-Imagery) I'm still learning Eros @doug-newman-nasa and looking for options to update the data pipeline @nasa-giss @StateOFCalifornia
 
 ![https://ecostress.jpl.nasa.gov/downloads/gallery/00050_LA_beaches_1Aug2020.png @cityoflosangeles](https://ecostress.jpl.nasa.gov/downloads/gallery/00050_LA_beaches_1Aug2020.png) 
 
@@ -26,6 +27,9 @@ from [storms.ngs.noaa.gov/](https://storms.ngs.noaa.gov/)
 
 <img alt="image" src="https://github.com/user-attachments/assets/02e4704a-c205-4fed-bc36-294af61481bc" />
 
+
+### [Hurricane-Marie-Damage-Imagery]
+@usgs @weather-gov @eodis-nasa
 [@nasa eol.jsc.nasa.gov/collections/Disasters/ShowDisastersCollection.pl](https://eol.jsc.nasa.gov/collections/Disasters/ShowDisastersCollection.pl) @nasa @deptofwar hi its -  [Rashad](https://ra5hard.github.io/) I'm trying to find our order form for iSS Imagery request at [Johnson https://eol.jsc.nasa.gov/RequestNewImagery/](https://eol.jsc.nasa.gov/RequestNewImagery/) <~ there is [Traci Park](mailto:councilmember.park@lacity.org), [Lindsey Horovath](mailto:ThirdDistrict@bos.lacounty.gov) [@nasa-jpl lindseyhorvath.lacounty.gov/meet-team-lindsey/?](https://lindseyhorvath.lacounty.gov/meet-team-lindsey/?) I know you with [National Weather Service @weather-gov](https://www.weather.gov/) so that means you are in my support matrix, I was trying to make an order for Malibu and long beach I don't know if [Rex Richardson](https://www.joinrexrichardson.com/) is monitoring but I know [Ms Bass](https://mayor.lacity.gov/about-mayor-karen-bass) (Mrs if Jeffery ain't dead) need the Imagery for all the damage since its one county @la-county-isd , here is my fire data [ra5hard.github.io/2026/09/30/Los-Angeles-County-Fire_Data](https://ra5hard.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html) @CityOFLosAngeles [Traci Park](https://cd11.lacity.gov/about/traci-park) the images may be here but I want fresh shit and this tool might do it [@datadesk palewi.re/docs/noaa-wildfires/](https://palewi.re/docs/noaa-wildfires/) 
 
 [@blackgirlscode darpa.mil/research/programs/translating-all-c-to-rust](https://www.darpa.mil/research/programs/translating-all-c-to-rust) // [NOAA Launches Wildfire Data Portal, Expanding Public Access to Satellite Fire Information](https://www.nesdis.noaa.gov/news/noaa-launches-wildfire-data-portal-expanding-public-access-satellite-fire-information)
