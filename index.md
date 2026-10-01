@@ -17,7 +17,7 @@ mathjax: true
 
 <img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
 
-[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-cunty-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
+[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-county-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
 ![https://www.ndbc.noaa.gov/images/buoycam/Z90A_2026_10_01_0110.jpg](https://www.ndbc.noaa.gov/images/buoycam/Z90A_2026_10_01_0110.jpg)
 [hi @deptofwar Pete Hegseth](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
 
