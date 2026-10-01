@@ -15,8 +15,8 @@ mathjax: true
 @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency ... sup [Pete ?!?!?! @Deptofwar](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) [newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military](https://newrepublic.com/post/216045/pete-hegseth-elon-musk-newt-gingrich-help-lead-military)
 <img   alt="image @ESA please watch, these ppl super confused because of a corrupt direction in population growth @foratlanta  @nasa-jpl so we late on mad shit @jaxa @UKspaceagency" src="https://github.com/user-attachments/assets/b92a5c11-a219-48e7-84a8-af78b18e85cb" />
 
-![https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
-
+![`WATCH` @CityOFLosangeles - youtu.be/iCyc47ENAYw https://youtu.be/iCyc47ENAYw @deptofwar @Stateofcalifornia ](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
+![https://www.whitehouse.gov/wp-content/uploads/2025/06/President-Donald-Trump-Official-Presidential-Portrait.png @CityOFLosangeles - youtu.be/iCyc47ENAYw https://youtu.be/iCyc47ENAYw @deptofwar @Stateofcalifornia @whitehouse](https://www.whitehouse.gov/wp-content/uploads/2025/06/President-Donald-Trump-Official-Presidential-Portrait.png)
 
 # HOT 97 News 9/30/26
 [`WATCH` - https://youtu.be/bgzO_QsYZ9k](https://youtu.be/bgzO_QsYZ9k)
