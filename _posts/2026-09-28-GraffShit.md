@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: default
 title:  "GraffShit"
 date:   2026-02-14 22:51:06 -0800
 categories: art graffiti coral
