@@ -4,6 +4,87 @@ mathjax: true
 ---
 
 
+## Rashard Kelly 
+ MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
+
+
+## LAke Allatoona
+
+
+The City of Acworth has a Mayor, a Board of Aldermen, and a City Manager. The Mayor is the Chief Executive Officer of the City of Acworth. The role of the mayor is to preside at meetings of the Board of Aldermen and vote on issues in the case of a tie. The Mayor also signs deeds and contracts, cosigns checks, calls meetings of the board, executes city ordinances, and appoints members to committees. The Board of Aldermen determines city policies, adopts city ordinances, approves the budget, sets the millage rate, and supervises the City Manager. The City Manager carries out the day-to-day executive duties for the City of Acworth. Acworth receives its drinking water from the Cobb County-Marietta Water Authority. Water for the Cobb County-Marietta Water Authority comes from two locations; the Wyckoff Treatment Division, supplied by Lake Allatoona, and the Quarles Treatment Division, supplied by the Chattahoochee River. [acworth.com/information/government/](https://www.acworth.com/information/government/)
+[@foratlanta allatoonalake.org/](https://www.allatoonalake.org/) // [sam.usace.army.mil/Missions/Civil-Works/Recreation/Allatoona-Lake/](https://www.sam.usace.army.mil/Missions/Civil-Works/Recreation/Allatoona-Lake/) // [facebook.com/CityOfAcworthGA/](https://www.facebook.com/CityOfAcworthGA/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/b92dd34c-cb2b-425d-9382-c8edfe93719c" />
+
+![https://acworthtourism.org/wp-content/uploads/2020/06/bench2-1024x768.jpg](https://acworthtourism.org/wp-content/uploads/2020/06/bench2-1024x768.jpg)
+
+[ @nasa search.earthdata.nasa.gov/search/granules?p=C2408009906-LPCLOUD](https://search.earthdata.nasa.gov/search/granules?p=C2408009906-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&q=emit&circle[0]=-84.41646%2C33.7539%2C4593&lat=34.12926860429677&long=-84.66412717746876&zoom=12.925825799448026)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/dca63561-f32a-44f8-ac1c-3560b31fc69e" />
+
+
+@blackgirlscode Lana @howard-university-web-services we can talk it out sometime, you can see lake Allatoona in the top left of the image from the thermal radiometer @TheSpaceDevs @BlueOrigin  [ECO_L2T_LSTE.002/ECOv002_L2T_LSTE_46466_005_16SGC_20260915T062030_0713_01](https://ecostress.jpl.nasa.gov/)
+<img  alt="image" src="https://github.com/user-attachments/assets/5645888e-b7fa-4ab2-9944-afde668272b0" />
+
+
+[acworth-ga.gov/board-of-aldermen/](https://acworth-ga.gov/board-of-aldermen/)
+
+![https://acworth-ga.gov/wp-content/uploads/2026/01/MayorBoardCityManager2026-1.jpg](https://acworth-ga.gov/wp-content/uploads/2026/01/MayorBoardCityManager2026-1.jpg)
+
+<img  alt=" @forAtlanta EMIT_L1B_RAD_001_20250217T173244_2504812_001" src="https://github.com/user-attachments/assets/546d880e-a2e3-42f7-ae61-8095ce9e3c78" />
+
+EMIT_L1B_RAD_001_20260415T183129_2610512_044
+@foratlanta
+<img alt="EMIT_L1B_RAD_001_20260415T183129_2610512_044 @foratlanta" src="https://github.com/user-attachments/assets/8514c9aa-3ff6-46bd-b5ab-b0dda1861dab" />
+
+`EMITL1BRAD.001/EMIT_L1B_RAD_001_20260831T011715_2624301_050/EMIT_L1B_RAD_001_20260831T011715_2624301_050.png` 
+ [search.earthdata.nasa.gov/search/granules?p=C2408009906-LPCLOUD @ABCNEWS Australia 354574847759775](https://search.earthdata.nasa.gov/search/granules?p=C2408009906-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&g=G4296499222-LPCLOUD&q=emit&lat=-26.48231489597917&long=145.4833745827265&zoom=5.354574847759775)
+ <img  alt="image @abcnews @nasa-jpl @emit-sds" src="https://github.com/user-attachments/assets/702ecb7e-e208-49ce-a432-180de682849b" />
+
+ 
+ ![https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2025/12/iss_expedition_75_patch_2026/27043213-1-eng-GB/ISS_Expedition_75_patch_2026_pillars.png](https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2025/12/iss_expedition_75_patch_2026/27043213-1-eng-GB/ISS_Expedition_75_patch_2026_pillars.png)
+ 
+ . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
+
+ 
+## 2025 NOAA NGS DSS 4-Band 8 Bit Imagery:
+# Long Beach, CA - [DataAccess AllFiles @nmfs-ost](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
+[fisheries.noaa.gov/inport/item/76024](https://www.fisheries.noaa.gov/inport/item/76024)
+@howard-university-web-services this link will be up for 14 days @whitehouse @nasa-jpl @podaac @nasa @blackgirlscode
+[coast.noaa.gov/dataviewer/pickup/1065946/LongBeach_2025_NOAA_RashardKellyNASAJPLMROECOSTRESSiSSJUNO_LanaHarris_Virtiserv__2025_4BandImagery_LongBeachCA_J1418291.zip](https://coast.noaa.gov/dataviewer/pickup/1065946/LongBeach_2025_NOAA_RashardKellyNASAJPLMROECOSTRESSiSSJUNO_LanaHarris_Virtiserv__2025_4BandImagery_LongBeachCA_J1418291.zip) /// [github.com/nmfs-ost](https://github.com/nmfs-ost) // [Shoreline Data Explorer nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) // [Coastal Mapping Program of Port of San Diego, CA, CA2001-CS-T](https://www.fisheries.noaa.gov/inport/item/67610)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/83443291-2072-4325-9458-595993718872" />
+
+_Long Beach Levees @La-county-isd_ [396000e3735000n @nasa-giss @nasa-openscapes](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3735000n.tif) _coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3735000n.tif_ . . . Similar design in [New Oreleans - coastalimagery.blob.core.windows.net/digitalcoast/Katrina](https://coastalimagery.blob.core.windows.net/digitalcoast/Katrina_RGB_2005_4916/K_28089-H4_11.tif)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/d21895d7-6526-43c9-8e53-c4f86f4c91a4" />
+
+@cbs-news-data @nbcnews @nasa-jpl @CityOFLosAngeles @StateOfCAlifornia
+
+[396000e3738000n -.tif 543.32 MB @nasa-jpl](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3738000n.tif)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ce7b115a-cff3-4db5-9814-6409232b020c" />
+
+[384000e3738000n.tif 487mb -.tif @noaa-gov](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/384000e3738000n.tif)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ca42caf2-02c2-443b-adef-99950260b2ef" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/a41763f4-3f75-4a35-9be8-6a17a2979ba7" />
+
+[DataAccess AllFiles](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
+
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/11008b07-f475-464d-8a4a-2cfd77a846f3" />
+
+
+
+# HTML
+[HTML Living Standard](https://html.spec.whatwg.org/multipage/) — Last Updated 3 July 2026 [@mdn](https://github.com/mdn)
+[ColorNAmes - w3schools.com](https://www.w3schools.com/tags/ref_colornames.asp)
+[https://fonts.google.com/](https://fonts.google.com/) @adobe i hope u guys are ok [I was looking for kuler.adobe.com/ functionality](http://web.archive.org/web/20250212005944/https://kuler.adobe.com/) and i know abt [color.adobe.com](color.adobe.com) for making swatches but the hex values are missing like the tool was downgraded and ad poisoned and i know that can be a sign of cyber attack @cisagov @fbicyber @nasa-jpl @whitehouse @deptofwar [color.adobe.com](https://color.adobe.com/) 
+
+
 <img  alt="image" src="https://github.com/user-attachments/assets/7c3879f6-4826-4ca8-af82-6774d1b0cf4e" />
 
 [`WATCH` - Brandi Glanville Launches AI Digital Twin For Fans To Date](https://youtu.be/zkNKxXbqzkM) // [Brandi Glanville](https://www.eonline.com/news/1436435/brandi-glanville-sent-home-from-special-forces-after-injury) // [`WATCH` - Ex-Pastor & American Idol Star Caleb Flynn On Trial For Wife's Murder](https://youtu.be/X6KF1zGEPVk) /////////////////////////// [Former American Idol contestant and pastor found guilty of murdering wife @bbc ](https://www.bbc.com/news/articles/c5rm9gv7n07xo) // [Former 'American Idol' contestant found guilty of murdering wife](https://abcnews.com/US/caleb-flynn-former-american-idol-contestant-murder-trial-wife-closing-arguments/story?id=136849417) // [Pastor Husband Charged in Wife’s Twisted Murder](https://youtu.be/oQQJvK9KOg4?si=bM9RVe2hfbp6xVWX) // @nasa hi [hot97.com/tv/](https://www.hot97.com/tv/) // [The TRAGIC Downfall of Brandi Glanville](https://youtu.be/-4dtk_sNNf8) // [Brandi Glanville imdb.com/name/nm4541706/](https://www.imdb.com/name/nm4541706/)
