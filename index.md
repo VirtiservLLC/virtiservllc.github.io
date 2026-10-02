@@ -15,8 +15,8 @@ mathjax: true
 <img   alt="image" src="https://github.com/user-attachments/assets/c92a0ffd-c6a1-476e-8c16-622a38531f3a" />
 
 
-# About the United States Space Force
-## Trump Signs Law Establishing U.S. Space Force [`READ`](https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/)
+## About the United States Space Force
+### [Trump](https://en.wikipedia.org/wiki/Executive_Order_14347) Signs Law Establishing U.S. Space Force [`READ`](https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/)
 Dec. 20, 2019 | By [Jim Garamone](https://www.war.gov/News/Author/58550/jim-garamone/) DOD News
 [@blackgirlscode @la-county-isd @cityoflosangeles @nasa @doug-newman-nasa @usnavy https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
 
