@@ -4,7 +4,7 @@ mathjax: true
 ---
 
 @USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse
-[war.gov/News/News-Stories/Article/Article/2046035/`trump-signs-law-establishing-us-space-force`/#pop3892171" @voyager-tech-inc](www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171")
+[war.gov/News/News-Stories/Article/Article/2046035/`trump-signs-law-establishing-us-space-force`/#pop3892171" @voyager-tech-inc](https://www.war.gov/News/News-Stories/article/article/2046035/trump-signs-law-establishing-us-space-force/)
 [<video controls poster="https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171" src="https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
 
 
