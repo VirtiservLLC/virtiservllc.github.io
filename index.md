@@ -5,11 +5,85 @@ mathjax: true
 
 [Nr. 9 · Hooverphonic](https://youtu.be/tvHGZoe5MoY?si=zZc7LviAQvcUkmX2) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL)
 
+---
+
+
+# [Mary J Blige](https://www.youtube.com/watch?v=WER5Q1ZoYms&themeRefresh=1)* – Strength Of A Woman: `U + Me` [DiSCOGS](https://www.discogs.com/master/1172926-Mary-J-Blige-Strength-Of-A-Woman)
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/307011498&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/officialmaryjblige" title="MaryJBlige" target="_blank" style="color: #cccccc; text-decoration: none;">MaryJBlige</a> · <a href="https://soundcloud.com/officialmaryjblige/u-me-love-lesson" title="U + Me (Love Lesson)" target="_blank" style="color: #cccccc; text-decoration: none;">U + Me (Love Lesson)</a></div>
+
+
+# About the United States Space Force
+## Trump Signs Law Establishing U.S. Space Force [`READ`](https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/)
+Dec. 20, 2019 | By [Jim Garamone](https://www.war.gov/News/Author/58550/jim-garamone/) DOD News
+[@blackgirlscode @la-county-isd @cityoflosangeles @nasa @doug-newman-nasa @usnavy https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
+
+[<video controls poster="https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171" src="https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
+
+
+[<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Logo_of_the_United_States_Space_Force.png/250px-Logo_of_the_United_States_Space_Force.png" alt="Thanks for SPaceforce Donald, Thanks for SMALL BUSiNESS assistance from @Nasa @nasa-jpl @howard-university-web-services @whitehouse virtiserv latrice United States Space Force" />](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Logo_of_the_United_States_Space_Force.png/250px-Logo_of_the_United_States_Space_Force.png) [The U.S. Space Force](https://www.spaceforce.mil/About-Us/) was established on Dec. 20, 2019, creating the first new branch of the armed services since 1947. The establishment of the USSF resulted from widespread recognition that space is a national security imperative. When combined with the growing threat posed by strategic competitors in space, it became clear that there was a need for a military service focused solely on pursuing superiority in the space domain. [US SPACE Force 101 - PDF](https://www.spaceforce.mil/Portals/2/Documents/SF101/ussf_101_glossy_FINAL_e-version.pdf)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/2104e052-14f3-43ec-87d9-f27f6361cc52" />
+
+
+
+[`WATCH` - youtube.com/watch?v=ndOHcZDX86Y](https://www.youtube.com/watch?v=ndOHcZDX86Y)
+
+ ### Thanks to President Trump, America will DOMINATE SPACE for generations to come. [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU)
+@deptoFWAR @Nasa : [Officer iSSACMAN](https://www.nasa.gov/people/jared-isaacman/), Hi its [rashard _ MRO](https://ra5hard.github.io/) from [@NAsa-JPL](https://earth.jpl.nasa.gov/emit/), Im concerned with [hon-Pete](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/)'s language Dominate, what about our partners? I want to perform helthily with @UKSpaceAgency @jaxa @isro i forgot who else but since @CityOfLosAngeles is a melting pot you guys have to be aware to explain context so we dont get competative with eachother @whitehouse please provide scope to Dominate and how that language should effect my daily work @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA 
+hi @BLACKGiRLSCODE share this with your parents for perspective idk who might be scared of me bc of my job [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU) @NASA [The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck) @ASU @ESA [@DHS-GOV @NASA @DEPTofWAR _Hon-Pete_](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) @deptofwar [aanandmadhav.com/work/emirates-mars-mission](https://aanandmadhav.com/work/emirates-mars-mission)
+@nasa-pds [marssim.space/](https://marssim.space/) // @Whitehouse im looking for the @Github but this is one @nasa-jpl sponsored that was in my monitoring tOOLkit when i got back to california [pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf @deptofwar ](https://pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf)  //// [https://lasp.colorado.edu/missions/emm-hope/](https://lasp.colorado.edu/missions/emm-hope/) @lasp @LowellObservatory 
+
+## The Real Reason The White House Just Created [Trump TV](https://www.whitehouse.gov/videos/trump-tv-the-essentials-station/)
+
+[`WATCH` - The Real Reason The White House Just Created `Trump TV`](https://youtu.be/fiGWBCvoev8)
+
+<img alt="image" src="https://github.com/user-attachments/assets/420d26ee-f901-4574-aaf8-b0e1b3ba8461" />
+
+
+@la-county-isd hollyjmitchell
+
+
+
+[whitehouse.gov/videos/trump-tv-the-essentials-station](whitehouse.gov/videos/trump-tv-the-essentials-station) // [`PLAY` - Street Fighter: The Movie (v1.12)](https://www.retrogames.cc/arcade-games/street-fighter-the-movie-v1-12.html)
+[@nasa .tv/](https://nasa.tv/) // [NASA Public-Education](https://video.ibm.com/nasahdtv) // [twitch.tv/nasa](https://www.twitch.tv/nasa) // [@nasa-giss NASA TV: Live Webcast Streams](https://science.gsfc.nasa.gov/attic/sunearthday.nasa.gov/webcasts/nasatv/) <~ is this just off air and [Nasa+](https://plus.nasa.gov/) the new standard ? [@LACMTA](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) ,  [this is the channel](https://plus.nasa.gov/) i was broadcasting to some passengers during some initiative @nasa-pds / @nasa-jpl @CityOFLOSANGELES [plus.nasa.gov/](https://plus.nasa.gov/) ... @nasa-jpl [https://www.nasa.gov/live/](https://www.nasa.gov/live/) is broken 429 Too Many Requests
+[nginx](https://nginx.org/) /////// [@deptofwar ritchietorres.house.gov/congressman-ritchie-torres-writes-to-executives-at-twitch-and-amazon-hasan-piker-is-dangerous](https://ritchietorres.house.gov/congressman-ritchie-torres-writes-to-executives-at-twitch-and-amazon-hasan-piker-is-dangerous) // [war.gov/Multimedia/Videos/videoid/973661/](https://www.war.gov/Multimedia/Videos/videoid/973661/)
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/c5d73dd6-44bf-49fc-8a2d-09d3efd82883" />
+
+[<video controls poster="https://media.defense.gov/2024/Jul/17/2003504898/2000/2000/0/240716-D-AF999-2001.PNG" src="https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4)
+
+
+<div class="mermaid">
+
+
+gitGraph
+   commit
+   commit
+   branch develop
+   checkout develop
+   commit
+   commit
+   checkout main
+   merge develop
+   commit
+   commit
+
+
+</div>
+
+
+[https://images.nasa.gov/](https://images.nasa.gov/)
+<img  alt="image" src="https://github.com/user-attachments/assets/77802916-fb89-4bc6-ae48-cc14efe8f021" />
+
+
 ##### Rashard Kelly 
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 
 
-[Find text in files using the Linux grep command](https://www.redhat.com/en/blog/find-text-files-using-grep) [How to Find all Files Containing Specific Text (string) on Linux](https://www.geeksforgeeks.org/linux-unix/how-to-find-all-files-containing-specific-text-string-on-linux/) [How to Search and Find Files for Text Strings in Linux](https://www.linuxjournal.com/content/how-search-and-find-files-text-strings-linux) [Index of Linux Journal Issues, 1994 - 2018](https://www.destructuring-bind.org/linux-journal-archive/LJ/tocindex.html)
+[Find text in files using the Linux grep command](https://www.redhat.com/en/blog/find-text-files-using-grep) [How to Find all Files Containing Specific Text (string) on Linux](https://www.geeksforgeeks.org/linux-unix/how-to-find-all-files-containing-specific-text-string-on-linux/) [How to Search and Find Files for Text Strings in Linux](https://www.linuxjournal.com/content/how-search-and-find-files-text-strings-linux) [Index of Linux Journal Issues, 1994 - 2018](https://www.destructuring-bind.org/linux-journal-archive/LJ/tocindex.html) // [Common MIME types](https://developer.mozilla.org/en-US/docs/Web/HTTP/Guides/MIME_types/Common_types) / [All MIME types](https://mimetype.io/all-types) : [Syntax of the MIME Types File](https://docs.oracle.com/cd/E19683-01/817-2178-10/crmime.html#wp25634) : [Content-Type](https://www.cs.umd.edu/~shankar/417-F01/Slides/chapter2a-aus/sld037.htm)
+[NewTUMBLR Rashard[M_R_O/JPL/NASA]](https://rashardmro.tumblr.com/)
+@nasa-jpl [2022-ANNUALREPORT](https://d2pn8kiwq2w21t.cloudfront.net/documents/JPL-annual-report-2022.pdf) <~ @blackgirlscode for you teachers
 # [RashardsLinuxNotes](https://thakarashard.github.io/linux/) + [computing](https://thakarashard.github.io/ricothaka/Computing)
 ![image](https://github.com/user-attachments/assets/7d9d0375-876a-4745-b039-0294c1b9a492)
 
