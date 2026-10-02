@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-[Nr. 9 · Hooverphonic](https://youtu.be/tvHGZoe5MoY?si=zZc7LviAQvcUkmX2) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL) // [Nirvana- All Apologies](https://youtu.be/SnoQCSIb9gg?si=dfxMDKBIfbsgyw2b)
+[Nr. 9 · Hooverphonic](https://youtu.be/tvHGZoe5MoY?si=zZc7LviAQvcUkmX2) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL) // [Nirvana- All Apologies](https://youtu.be/SnoQCSIb9gg?si=dfxMDKBIfbsgyw2b) // [Nirvana - In Bloom](https://youtu.be/PbgKEjNBHqM?list=RDPbgKEjNBHqM)
 
 ---
 
@@ -11,7 +11,7 @@ mathjax: true
 # [Mary J Blige](https://www.youtube.com/watch?v=WER5Q1ZoYms&themeRefresh=1)* – Strength Of A Woman: `U + Me` [DiSCOGS](https://www.discogs.com/master/1172926-Mary-J-Blige-Strength-Of-A-Woman)
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/307011498&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/officialmaryjblige" title="MaryJBlige" target="_blank" style="color: #cccccc; text-decoration: none;">MaryJBlige</a> · <a href="https://soundcloud.com/officialmaryjblige/u-me-love-lesson" title="U + Me (Love Lesson)" target="_blank" style="color: #cccccc; text-decoration: none;">U + Me (Love Lesson)</a></div>
 
-@nasa-jpl I think she is sleeping outside [_Must Be Dues · Melba Moore_ @Cityoflosangeles](https://www.youtube.com/watch?v=Eu8K8LEaUy0&list=RDEu8K8LEaUy0&start_radio=1)
+@nasa-jpl I think she is sleeping outside [_Must Be Dues · Melba Moore_ @Cityoflosangeles](https://www.youtube.com/watch?v=Eu8K8LEaUy0&list=RDEu8K8LEaUy0&start_radio=1) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL) // [Nirvana- All Apologies](https://youtu.be/SnoQCSIb9gg?si=dfxMDKBIfbsgyw2b) // [Nirvana - In Bloom](https://youtu.be/PbgKEjNBHqM?list=RDPbgKEjNBHqM)
 <img   alt="image" src="https://github.com/user-attachments/assets/c92a0ffd-c6a1-476e-8c16-622a38531f3a" />
 
 
