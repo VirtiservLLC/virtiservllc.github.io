@@ -9,6 +9,28 @@ mathjax: true
 
 <img   alt="image @eodis-nasa hi @nasa-jpl @usgs logging in - rashard iman kelly " src="https://github.com/user-attachments/assets/2a471e27-0c32-4ff8-9b5b-a6031690aa8c" />
 
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 10-02-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.26 Home NASA Accessibility
+NASA Official: Doug Newman @doug-newman-nasa there are some items on the long beach agenda to run through city council , @longbeachinnovationteam im being attacked in the library with a weapon thats involuntarily filling my lungs with air @cityoflosangeles @la-county-isd im in billy jean on workstation 12 @deptofwar somene is hurting me for war dept mentions @whitehouse @dhs-gov hi its rashard m r o @nasa-pds
 
 ### [Mary J Blige](https://www.youtube.com/watch?v=WER5Q1ZoYms&themeRefresh=1)* – Strength Of A Woman: U + Me
 [DiSCOGS](https://www.discogs.com/master/1172926-Mary-J-Blige-Strength-Of-A-Woman)
