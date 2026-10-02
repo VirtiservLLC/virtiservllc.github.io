@@ -7,10 +7,10 @@ mathjax: true
 ## Rashard Kelly 
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 
+<img  alt="image GetAdvice @Blackgirlscode @cityoflosangeles @nbcnews @newshour how do atlanta girls handle supporting a bad party where ppl started a fire ? @ForAtlanta " src="https://github.com/user-attachments/assets/23ab4af1-489e-48fa-b054-a1877eca6c11" />
 
 ## LAke Allatoona
-
-
+[_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/)
 The City of Acworth has a Mayor, a Board of Aldermen, and a City Manager. The Mayor is the Chief Executive Officer of the City of Acworth. The role of the mayor is to preside at meetings of the Board of Aldermen and vote on issues in the case of a tie. The Mayor also signs deeds and contracts, cosigns checks, calls meetings of the board, executes city ordinances, and appoints members to committees. The Board of Aldermen determines city policies, adopts city ordinances, approves the budget, sets the millage rate, and supervises the City Manager. The City Manager carries out the day-to-day executive duties for the City of Acworth. Acworth receives its drinking water from the Cobb County-Marietta Water Authority. Water for the Cobb County-Marietta Water Authority comes from two locations; the Wyckoff Treatment Division, supplied by Lake Allatoona, and the Quarles Treatment Division, supplied by the Chattahoochee River. [acworth.com/information/government/](https://www.acworth.com/information/government/)
 [@foratlanta allatoonalake.org/](https://www.allatoonalake.org/) // [sam.usace.army.mil/Missions/Civil-Works/Recreation/Allatoona-Lake/](https://www.sam.usace.army.mil/Missions/Civil-Works/Recreation/Allatoona-Lake/) // [facebook.com/CityOfAcworthGA/](https://www.facebook.com/CityOfAcworthGA/)
 
