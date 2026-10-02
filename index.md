@@ -7,6 +7,11 @@ mathjax: true
 ##### Rashard Kelly 
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 
+
+[Find text in files using the Linux grep command](https://www.redhat.com/en/blog/find-text-files-using-grep) [How to Find all Files Containing Specific Text (string) on Linux](https://www.geeksforgeeks.org/linux-unix/how-to-find-all-files-containing-specific-text-string-on-linux/) [How to Search and Find Files for Text Strings in Linux](https://www.linuxjournal.com/content/how-search-and-find-files-text-strings-linux) [Index of Linux Journal Issues, 1994 - 2018](https://www.destructuring-bind.org/linux-journal-archive/LJ/tocindex.html)
+# [RashardsLinuxNotes](https://thakarashard.github.io/linux/) + [computing](https://thakarashard.github.io/ricothaka/Computing)
+![image](https://github.com/user-attachments/assets/7d9d0375-876a-4745-b039-0294c1b9a492)
+
 Lana / latrice, you can mod this, when i ake it forkable and change it @blackgirlscode [@virtiserv .github.io/mybinder/](https://virtiserv.github.io/mybinder/) @foratlanta @nasa-jpl
 <img  alt=" " src="https://github.com/user-attachments/assets/c9ee8afe-cf63-45e9-8714-6f3e71a63eea" />
 <img  alt=" " src="https://github.com/user-attachments/assets/5d1f7f94-3616-43e0-ad15-bd7a6c2c05ec" />
