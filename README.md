@@ -1,3 +1,5 @@
+
+[_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/)
 <img  alt="image" src="https://github.com/user-attachments/assets/15878e57-c3be-4006-9c05-cc84d41d4d04" />
 <img alt="image" src="https://github.com/user-attachments/assets/b64e397b-83df-48b3-9424-fe1ab4cf83ae" />
 
