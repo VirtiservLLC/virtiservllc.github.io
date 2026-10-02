@@ -8,9 +8,6 @@ mathjax: true
 ---
 
 
- <img alt="image @foratlanta @nasa-jpl @github " src="https://github.com/user-attachments/assets/f9ac5e73-a446-4091-a71a-1d6853c6ec2f" />
-
-
 ### [Mary J Blige](https://www.youtube.com/watch?v=WER5Q1ZoYms&themeRefresh=1)* – Strength Of A Woman: U + Me
 [DiSCOGS](https://www.discogs.com/master/1172926-Mary-J-Blige-Strength-Of-A-Woman)
 
