@@ -7,6 +7,14 @@ mathjax: true
 
 --- 
 
+#### New FireSense Field and Airborne Datasets Released
+[@eodis-nasa @nasa-jpl @ `NASA_FiRE_PASADENA` @la-county-isd](https://www.earthdata.nasa.gov/data/alerts-outages/new-firesense-field-airborne-datasets-released)
+airborne Level 1B calibrated multispectral imagery across 50 spectral bands gathered via the MODIS/ASTER Airborne Simulator (MASTER) onboard the NASA B-200 during flights over California and the southern United States;
+field measurements of in situ soil moisture, soil temperature profiles, and live fuel moisture from California’s Sedgwick Reserve that were used to establish pre-fire baseline conditions for calibrating airborne sensors.
+The FireSense project aims to improve U.S. wildland fire management by working with operational agencies to refine and deliver NASA’s unique Earth science and technological capabilities. FireSense focuses on four types of assessments to support decisions before, during, and after wildland fires: pre-fire fuel conditions, active fire dynamics, post-fire impacts and threats, and air quality forecasting. Each type of assessment is co-developed with wildland fire management stakeholders. @CityOfLosAngeles @foratlanta someone is hurting my side stomach because of the girl beef, @blackgirlscode tell all my romantic partners they are not being charged with rape, people just saying in LA it's the same result that's all y'all not my enemy big or small [💯💯💯 @ForAtlanta](https://www.facebook.com/lanaonlocation/)
+<img alt="image" src="https://github.com/user-attachments/assets/54c4f948-3e90-461c-bf3b-9a6fde301692" />
+
+
 # Sexuality
 
 ג [Gimel]
