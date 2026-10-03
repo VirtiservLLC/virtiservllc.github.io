@@ -8,6 +8,12 @@ mathjax: true
 --- 
 
 # Sexuality
+## Rashards Reading 
+outside [Jehovah's pubs](https://wol.jw.org/en/wol/h/r1/lp-e) @Nasa-jpl I hope I did not corrupt my sexuality with my reading list and got abandoned @cityoflosangeles if a sex book has pics its no good , @ForAtlanta @newshour I have to get into my Amazon account, [Erika can help you - magiccity.com/video/latto-city/ @nasa-jpl](https://www.magiccity.com/video/latto-city/)
+@ForAtlanta [She Comes First By Ian Kerner](https://superpdf.org/book/she-comes-first-by-ian-kerner-4987197)
+
+<iframe src="https://archive.org/embed/shecomesfirstthi0000kern" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
 @howard-university-web-services is trice mad I said she had no ethics ? @deptofwar @nasa-giss 
 [en.wikipedia.org/wiki/`The_Ethical_Slut`](https://en.wikipedia.org/wiki/The_Ethical_Slut) // [reddit.com/r/polyamory/comments/cksq1b/`have_you_read_the_ethical_slut`/?rdt=44169](https://www.reddit.com/r/polyamory/comments/cksq1b/have_you_read_the_ethical_slut/?rdt=44169) // [@foratlanta queerkentucky.com/book-`review-of-the-ethical-slut`/](https://queerkentucky.com/book-review-of-the-ethical-slut/)
 
