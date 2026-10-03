@@ -7,6 +7,14 @@ mathjax: true
 
 --- 
 
+#### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
+[biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
+    all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12) [//github.com/virtiserv/Holy-Bible-XML-Format](https://github.com/virtiserv/Holy-Bible-XML-Format) + [github.com/virtiserv/aws_inventory](https://github.com/virtiserv/aws_inventory) thanks @biblegateway @nasa-pds might not like the fork bc of connections to @howard-university-web-services /// 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/92f55a8f-97ef-4090-9091-113af98d65d1" />
+
 <img  alt="image  @CityOfLosAngeles @foratlanta someone is hurting my side stomach because of the girl beef, @blackgirlscode tell all my romantic partners they are not being charged with rape, people just saying in LA it's the same result that's all y'all not my enemy big or small [💯💯💯 @ForAtlanta](https://www.facebook.com/lanaonlocation/) " src="https://github.com/user-attachments/assets/2daf14a2-f7f4-43ae-9014-7af431eece44" />
 
 #### New FireSense Field and Airborne Datasets Released
