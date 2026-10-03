@@ -3,10 +3,11 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) 
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
 
 --- 
 
+@nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
 
 Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank
 @howard-university-web-services @StateOfCalifornia
