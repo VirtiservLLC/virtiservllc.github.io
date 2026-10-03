@@ -7,9 +7,12 @@ mathjax: true
 
 --- 
 
+<img   alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles" src="https://github.com/user-attachments/assets/cd14f3bb-500b-4e89-8124-441f1e37ffa1" />
+
 ## Attribute selectors - [read](https://developer.mozilla.org/en-US/docs/Web/CSS/Reference/Selectors/Attribute_selectors)
 @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, I'm using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632)
-Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type="submit"] will match <input type="submit"> and <button type="submit">, or any element with type="submit" [developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators) @mdn @cityoflosangeles
+Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type="submit"] will match `<input type="submit">` and `<button type="submit">`, or any element with type="submit" [developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators) @mdn @cityoflosangeles
+
 ```css
 
 img[alt*="background"] {
@@ -27,14 +30,16 @@ img[alt*="background"] {
 ```
 
 
+
 @asfadmin @nasa-jpl this is one of the opera reports that broke a while back @deptofwar we are doing land displacement mapping in this dataset, this might be the last report it was reported as decommed in @eodis-nasa data alerts OPERA Disturbance Alert V0 Provisional Data Decommissioned  Data Retiring: 
-Issued April 29, 2025 Data Alert
+Issued April 29, 2025 [Data Alert]
 [earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned](https://www.earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned)
 OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE
 <img   alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background" src="https://github.com/user-attachments/assets/cd14f3bb-500b-4e89-8124-441f1e37ffa1" />
 
 [@forAtlanta @nasa-jpl @usgs - search.asf.alaska.edu](https://search.asf.alaska.edu/#/?zoom=9.386&center=-83.475,33.611&polygon=POLYGON((-84.722%2034.1492,-83.9445%2034.1492,-83.9445%2034.3142,-84.722%2034.3142,-84.722%2034.1492))&resultsLoaded=true&granule=OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20250828T233841Z_v1.0_20260624T024926Z&dataset=OPERA-S1)
-<img alt="image" src="https://github.com/user-attachments/assets/3d23f2bd-b77e-4756-996b-48ea4f78a3e7" />
+
+<img alt="image OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles" src="https://github.com/user-attachments/assets/3d23f2bd-b77e-4756-996b-48ea4f78a3e7" />
 
 
 @foratlanta [`Acworth Aldermen` @asfadmin](https://acworth-ga.gov/board-of-aldermen/) this is lake Lanier and allatoona from sentinel 
