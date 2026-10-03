@@ -7,6 +7,10 @@ mathjax: true
 
 --- 
 
+
+@cityoflosangeles [Supervisor Horovath](https://lindseyhorvath.lacounty.gov/) this app is a step towards those pics! [NOAA Shoreline Data Explorer https://nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) [Shoreline at NOAA - shoreline.noaa.gov/](https://shoreline.noaa.gov/)  /////// [https://lindseyhorvath.lacounty.gov/](https://lindseyhorvath.lacounty.gov/) ///// [ en.wikipedia.org/wiki/Talk:Lindsey_Horvath](https://en.wikipedia.org/wiki/Talk:Lindsey_Horvath) + [https://en.wikipedia.org/wiki/Lindsey_Horvath](https://en.wikipedia.org/wiki/Lindsey_Horvath) @josh @wikimedia
+<img alt="image" src="https://github.com/user-attachments/assets/85c1ac31-e3f7-41d5-9041-f48e0efbfe1e" />
+
 #### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
 [biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
     all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
