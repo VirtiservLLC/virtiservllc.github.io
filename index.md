@@ -7,6 +7,28 @@ mathjax: true
 
 --- 
 
+# Sexuality
+## Rashards Reading 
+outside [Jehovah's pubs](https://wol.jw.org/en/wol/h/r1/lp-e) @Nasa-jpl I hope I did not corrupt my sexuality with my reading list and got abandoned @cityoflosangeles if a sex book has pics its no good , @ForAtlanta @newshour I have to get into my Amazon account, [Erika can help you - magiccity.com/video/latto-city/ @nasa-jpl](https://www.magiccity.com/video/latto-city/)
+@ForAtlanta [She Comes First By Ian Kerner](https://superpdf.org/book/she-comes-first-by-ian-kerner-4987197)
+
+<iframe src="https://archive.org/embed/shecomesfirstthi0000kern" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+@howard-university-web-services is trice mad I said she had no ethics ? @deptofwar @nasa-giss 
+[en.wikipedia.org/wiki/`The_Ethical_Slut`](https://en.wikipedia.org/wiki/The_Ethical_Slut) // [reddit.com/r/polyamory/comments/cksq1b/`have_you_read_the_ethical_slut`/?rdt=44169](https://www.reddit.com/r/polyamory/comments/cksq1b/have_you_read_the_ethical_slut/?rdt=44169) // [@foratlanta queerkentucky.com/book-`review-of-the-ethical-slut`/](https://queerkentucky.com/book-review-of-the-ethical-slut/)
+
+![https://queerkentucky.com/wp-content/uploads/2022/01/the-ethical-slut-third-edition-687x1030.webp](https://queerkentucky.com/wp-content/uploads/2022/01/the-ethical-slut-third-edition-687x1030.webp) 
+
+## Black Madonna 
+[@blackgirlscode en.wikipedia.org/wiki/Black_Madonna](https://en.wikipedia.org/wiki/Black_Madonna)
+![https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled](https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled)
+![https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail) 
+
+[almuslih.org/wp-content/uploads/2024/10/Reynolds-G-`The-Quran-and-the-Bible-Text-and-Commentary`](https://almuslih.org/wp-content/uploads/2024/10/Reynolds-G-The-Quran-and-the-Bible-Text-and-Commentary.pdf)
+![https://thumb.wikimedia.org/wikipedia/commons/thumb/2/24/Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg/960px-Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/2/24/Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg/960px-Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail) 
+
+Isa feeding his disciples with food from heaven, 1580 Persian manuscript.
+
 @blackgirlscode 
 
 [_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/) . ., . @Foratlanta [Tell The Masjid I watched it to here](https://youtu.be/HTXbFnyPSso?t=595) I did not know there was a book dedicated to jesus In Islam, Jesus (Arabic: عيسى بن مريم, romanized: ʿĪsā ibn Maryam, lit. 'Jesus, son of Mary'), referred to by the Arabic rendering of his name Isa, is believed to be the penultimate prophet and messenger of God (Allāh) and the messiah. - [Wiki](https://en.wikipedia.org/wiki/Jesus_in_Islam)
