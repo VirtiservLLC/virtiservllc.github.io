@@ -33,6 +33,19 @@ img:hover {
   transform: scale(1.00);
 }
 
+img[alt*="background"] {
+  width: 100%;
+  background: #2e7bcf url(../images/header-bg.jpg) 0 0 repeat-x;
+  border-bottom: solid 10px #c9ff2350;
+}
+
+.mermaid svg {
+  display: block;
+  margin: 0;
+  padding: 0;
+  width: 100%;
+}
+
 .floatright img:nth-child(odd) {
   float: right;
 }
