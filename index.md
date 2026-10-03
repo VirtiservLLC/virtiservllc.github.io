@@ -7,6 +7,12 @@ mathjax: true
 
 --- 
 
+[ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896)
+<img  alt="image [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896) @nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
+" src="https://github.com/user-attachments/assets/e3bf863c-42df-4d9b-aaa7-82d988c3cda3" />
+
+<img   alt="image [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896)" src="https://github.com/user-attachments/assets/c3f27323-5748-4599-b478-0a2ddc3ebab5" />
+
 @nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
 
 Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank
