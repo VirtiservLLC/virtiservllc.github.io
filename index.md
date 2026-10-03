@@ -7,6 +7,10 @@ mathjax: true
 
 --- 
 
+
+Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank
+@howard-university-web-services @StateOfCalifornia
+[Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank @CityOfLosAngeles @NEWSHOUR @ForAtlanta ](https://youtu.be/3VcZAtO-K_Y?t=17)
 <img  alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles"  src="https://github.com/user-attachments/assets/249a8c29-6fb4-45a0-b3f3-968711e73ebf" />
 
 
