@@ -8,6 +8,11 @@ mathjax: true
 --- 
 
 
+@foratlanta [`Acworth Aldermen` @asfadmin](https://acworth-ga.gov/board-of-aldermen/) this is lake Lanier and allatoona from sentinel 
+S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2
+<img  alt="S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2" src="https://github.com/user-attachments/assets/a8ddec64-9ca3-4a17-afbc-10f84d939257" />
+![https://www.esa.int/eologos/images/sentinel-1_neg.jpg](https://www.esa.int/eologos/images/sentinel-1_neg.jpg) 
+
 @cityoflosangeles [Supervisor Horovath](https://lindseyhorvath.lacounty.gov/) this app is a step towards those pics! [NOAA Shoreline Data Explorer https://nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) [Shoreline at NOAA - shoreline.noaa.gov/](https://shoreline.noaa.gov/)  /////// [https://lindseyhorvath.lacounty.gov/](https://lindseyhorvath.lacounty.gov/) ///// [ en.wikipedia.org/wiki/Talk:Lindsey_Horvath](https://en.wikipedia.org/wiki/Talk:Lindsey_Horvath) + [https://en.wikipedia.org/wiki/Lindsey_Horvath](https://en.wikipedia.org/wiki/Lindsey_Horvath) @josh @wikimedia
 <img alt="image" src="https://github.com/user-attachments/assets/85c1ac31-e3f7-41d5-9041-f48e0efbfe1e" />
 
