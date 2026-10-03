@@ -3,11 +3,12 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU)
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)
 
 --- 
 
 #### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
+ @forAtlanta Keisha Lance bottoms how should I feel aboiut the [girls in Atlanta](https://www.neilsberg.com/insights/atlanta-ga-population-by-gender/)? Like [is the Sexuality worth investing in @NIHGOV](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)?  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)
 12 She will do him good and not evil all the days of her life. [Proverbs 31ing James Version](https://www.biblegateway.com/passage/?search=Proverbs%2031&version=KJV)
 [biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
     all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
