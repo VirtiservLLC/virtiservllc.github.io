@@ -8,6 +8,15 @@ mathjax: true
 --- 
 
 
+[@forAtlanta @nasa-jpl @usgs - search.asf.alaska.edu](https://search.asf.alaska.edu/#/?zoom=9.386&center=-83.475,33.611&polygon=POLYGON((-84.722%2034.1492,-83.9445%2034.1492,-83.9445%2034.3142,-84.722%2034.3142,-84.722%2034.1492))&resultsLoaded=true&granule=OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20250828T233841Z_v1.0_20260624T024926Z&dataset=OPERA-S1)
+<img alt="image" src="https://github.com/user-attachments/assets/3d23f2bd-b77e-4756-996b-48ea4f78a3e7" />
+
+@asfadmin @nasa-jpl this is one of the opera reports that broke a while back @deptofwar we are doing land displacement mapping in this dataset, this might be the last report it was reported as decommed in @eodis-nasa data alerts OPERA Disturbance Alert V0 Provisional Data Decommissioned  Data Retiring: 
+Issued April 29, 2025 Data Alert
+[earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned](https://www.earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned)
+OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE
+<img   alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE" src="https://github.com/user-attachments/assets/cd14f3bb-500b-4e89-8124-441f1e37ffa1" />
+
 @foratlanta [`Acworth Aldermen` @asfadmin](https://acworth-ga.gov/board-of-aldermen/) this is lake Lanier and allatoona from sentinel 
 S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2
 <img  alt="S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2" src="https://github.com/user-attachments/assets/a8ddec64-9ca3-4a17-afbc-10f84d939257" />
