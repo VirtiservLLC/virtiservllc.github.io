@@ -7,6 +7,16 @@ mathjax: true
 
 --- 
 
+@blackgirlscode 
+
+[_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/) . ., . @Foratlanta [Tell The Masjid I watched it to here](https://youtu.be/HTXbFnyPSso?t=595) I did not know there was a book dedicated to jesus In Islam, Jesus (Arabic: عيسى بن مريم, romanized: ʿĪsā ibn Maryam, lit. 'Jesus, son of Mary'), referred to by the Arabic rendering of his name Isa, is believed to be the penultimate prophet and messenger of God (Allāh) and the messiah. - [Wiki](https://en.wikipedia.org/wiki/Jesus_in_Islam)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/15878e57-c3be-4006-9c05-cc84d41d4d04" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/b64e397b-83df-48b3-9424-fe1ab4cf83ae" />
+
+
+[ @cityoflosangeles github.com/rashardikelly](https://github.com/rashardikelly)
 
 @la-county-isd Ms bass, I think when your term is over the city should be included in the county districts as its own district, and [smart_La](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) can get a proper review and [Ted @usc](https://www.marshall.usc.edu/personnel/ted-ross) can recover [his reputation](https://www.linkedin.com/in/ted-ross-la) [SMART_LA - Pdf @nasa-pds ita.lacity.gov](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) // 
 <img  alt="image" src="https://github.com/user-attachments/assets/c3a66e39-1138-4cbe-93ea-5fae22e16f47" />
