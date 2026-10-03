@@ -7,6 +7,8 @@ mathjax: true
 
 --- 
 
+<img  alt="image  @CityOfLosAngeles @foratlanta someone is hurting my side stomach because of the girl beef, @blackgirlscode tell all my romantic partners they are not being charged with rape, people just saying in LA it's the same result that's all y'all not my enemy big or small [💯💯💯 @ForAtlanta](https://www.facebook.com/lanaonlocation/) " src="https://github.com/user-attachments/assets/2daf14a2-f7f4-43ae-9014-7af431eece44" />
+
 #### New FireSense Field and Airborne Datasets Released
 [@eodis-nasa @nasa-jpl @ `NASA_FiRE_PASADENA` @la-county-isd](https://www.earthdata.nasa.gov/data/alerts-outages/new-firesense-field-airborne-datasets-released)
 airborne Level 1B calibrated multispectral imagery across 50 spectral bands gathered via the MODIS/ASTER Airborne Simulator (MASTER) onboard the NASA B-200 during flights over California and the southern United States;
