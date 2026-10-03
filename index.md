@@ -3,9 +3,16 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU)
 
 --- 
+
+#### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
+12 She will do him good and not evil all the days of her life. [Proverbs 31ing James Version](https://www.biblegateway.com/passage/?search=Proverbs%2031&version=KJV)
+[biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
+    all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12) [//github.com/virtiserv/Holy-Bible-XML-Format](https://github.com/virtiserv/Holy-Bible-XML-Format) + [github.com/virtiserv/aws_inventory](https://github.com/virtiserv/aws_inventory) 
 
 [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896)
 <img  alt="image [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896) @nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
