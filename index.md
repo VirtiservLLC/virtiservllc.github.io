@@ -3,6 +3,22 @@ layout: default
 mathjax: true
 ---
 
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20)
+
+--- 
+
+
+@la-county-isd Ms bass, I think when your term is over the city should be included in the county districts as its own district, and [smart_La](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) can get a proper review and [Ted @usc](https://www.marshall.usc.edu/personnel/ted-ross) can recover [his reputation](https://www.linkedin.com/in/ted-ross-la) [SMART_LA - Pdf @nasa-pds ita.lacity.gov](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) // 
+<img  alt="image" src="https://github.com/user-attachments/assets/c3a66e39-1138-4cbe-93ea-5fae22e16f47" />
+
+
+@cityoflosangeles [Supervisor Horovath](https://lindseyhorvath.lacounty.gov/) this app is a step towards those pics! [NOAA Shoreline Data Explorer https://nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) [Shoreline at NOAA - shoreline.noaa.gov/](https://shoreline.noaa.gov/)  /////// [https://lindseyhorvath.lacounty.gov/](https://lindseyhorvath.lacounty.gov/) ///// [ en.wikipedia.org/wiki/Talk:Lindsey_Horvath](https://en.wikipedia.org/wiki/Talk:Lindsey_Horvath) + [https://en.wikipedia.org/wiki/Lindsey_Horvath](https://en.wikipedia.org/wiki/Lindsey_Horvath) @josh @wikimedia
+<img  alt="image" src="https://github.com/user-attachments/assets/871fa0df-c5af-4b1d-9241-2d27fa2f8492" />
+
+![https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png](https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png)
+
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/0V8jGgK39sLsj2yAHHPigU?utm_source=generator&si=128bf1d4251f47f7" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 @USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse
 [war.gov/News/News-Stories/Article/Article/2046035/`trump-signs-law-establishing-us-space-force`/#pop3892171" @voyager-tech-inc](https://www.war.gov/News/News-Stories/article/article/2046035/trump-signs-law-establishing-us-space-force/)
 [<video controls poster="https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171" src="https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
