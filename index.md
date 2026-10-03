@@ -3,11 +3,19 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20)
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) 
 
 --- 
 
 # Sexuality
+
+ג [Gimel]
+#### Proberrbs 31: 12 ምሳሌ
+[wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12)
+
+ד [Daleth]
 ## Rashards Reading 
 outside [Jehovah's pubs](https://wol.jw.org/en/wol/h/r1/lp-e) @Nasa-jpl I hope I did not corrupt my sexuality with my reading list and got abandoned @cityoflosangeles if a sex book has pics its no good , @ForAtlanta @newshour I have to get into my Amazon account, [Erika can help you - magiccity.com/video/latto-city/ @nasa-jpl](https://www.magiccity.com/video/latto-city/)
 @ForAtlanta [She Comes First By Ian Kerner](https://superpdf.org/book/she-comes-first-by-ian-kerner-4987197)
