@@ -13,7 +13,7 @@ mathjax: true
 #### Proberrbs 31: 12 ምሳሌ
 [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
 12 She rewards him with good, not bad,
-All the days of her life. [@foratlanta - _Im Lookin' For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12)
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12)
 
 ד [Daleth]
 ## Rashards Reading 
