@@ -8,7 +8,7 @@ mathjax: true
 --- 
 
 [U.S. Cyber Command and NSA Positioned To Persevere Personnel Cuts](https://www.afcea.org/signal-media/cyber-edge/us-cyber-command-and-nsa-positioned-persevere-personnel-cuts) 
-
+![https://www.afcea.org/sites/default/files/styles/wide/public/2025-05/cyber%20workforce_adobestock.jpeg](https://www.afcea.org/sites/default/files/styles/wide/public/2025-05/cyber%20workforce_adobestock.jpeg)
 
 [@howard-university-web-services @disney Jeezy - U Kno It was LAtrice Fitzpatrick aka Lana Harris stalking me to see if I was playing Jeezy as anti t.i. music ?](https://youtu.be/jkKCkzkygJ4?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W)
 The Power of Water: The promise and perils of California’s Salton Sea
