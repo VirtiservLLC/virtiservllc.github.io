@@ -6,6 +6,10 @@ mathjax: true
 [Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00) // [Eightball & MJG - Comin' Out Hard ](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0) // [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A) // [Jeezy - 4 Zones - Seen It All - 07 (Deluxe) @FedRadio](https://youtu.be/uXa04WHkOTM?list=PLPde4DJhkXgt9_KqY6W7ST-Crdo0Tl45U) // [Jeezy Feat. Future - No Tears - Seen It All - 14 (Deluxe) @FedRadio hi @Nasa-jpl @foratlanta I don't think Jeezy an enemy @deptofwar](https://youtu.be/eFoWqYP62QI?list=PLPde4DJhkXgt9_KqY6W7ST-Crdo0Tl45U) // [Jeezy - Bout That ft. Lil Wayne](https://youtu.be/yB4Lu2UZImM?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W) @nasa-jpl I might have offended him and he make lil Wayne steal and electrocute me and took my girl, it could have happened! @deptofwar I wanna handle shit peaceful ok @blackgirlscode [Jeezy - U Kno It was LAtrice Fitzpatrick aka Lana Harris stalking me to see if I was playing Jeezy as anti t.i. music @disney ?](https://youtu.be/jkKCkzkygJ4?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W)
 
 --- 
+
+[U.S. Cyber Command and NSA Positioned To Persevere Personnel Cuts](https://www.afcea.org/signal-media/cyber-edge/us-cyber-command-and-nsa-positioned-persevere-personnel-cuts) 
+
+
 [@howard-university-web-services @disney Jeezy - U Kno It was LAtrice Fitzpatrick aka Lana Harris stalking me to see if I was playing Jeezy as anti t.i. music ?](https://youtu.be/jkKCkzkygJ4?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W)
 The Power of Water: The promise and perils of California’s Salton Sea
 ABC News’ Mireya Villarreal visits @StateOfCalifornia 's largest inland lake, where nearby communities face hazards from exposed toxins, but also increased attention from a rush to mine a critical resource.
