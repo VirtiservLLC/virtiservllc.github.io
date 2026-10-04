@@ -7,6 +7,10 @@ mathjax: true
 
 --- 
 
+
+{% include albumcovers.html %}
+
+
 #### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
  @forAtlanta Keisha Lance bottoms how should I feel aboiut the [girls in Atlanta](https://www.neilsberg.com/insights/atlanta-ga-population-by-gender/)? Like [is the Sexuality worth investing in @NIHGOV](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)?  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)
 12 She will do him good and not evil all the days of her life. [Proverbs 31ing James Version](https://www.biblegateway.com/passage/?search=Proverbs%2031&version=KJV)
