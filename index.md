@@ -7,6 +7,8 @@ mathjax: true
 
 --- 
 
+<img  alt="image" src="https://github.com/user-attachments/assets/6ea93cd4-35c3-40d4-b4b4-6b540a6cf3b1" />
+
 
 {% include albumcovers.html %}
 
