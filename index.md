@@ -3,10 +3,12 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00) // [Eightball & MJG - Comin' Out Hard ](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0)
 
 --- 
 
+
+@nasa-jpl I really wonder what cop was  always following me when I listened to music, bc he did not know how real this would become and slow down America [@ForAtlanta Eightball & MJG - Comin' Out Hard youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52)
 <img  alt="image" src="https://github.com/user-attachments/assets/6ea93cd4-35c3-40d4-b4b4-6b540a6cf3b1" />
 
 
