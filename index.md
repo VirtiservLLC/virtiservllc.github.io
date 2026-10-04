@@ -32,6 +32,7 @@ April 17, 2023 @emit-sds
 @nasa-jpl I really wonder what cop was  always following me when I listened to music, bc he did not know how real this would become and slow down America [@ForAtlanta Eightball & MJG - Comin' Out Hard youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52)
 <img  alt="image" src="https://github.com/user-attachments/assets/6ea93cd4-35c3-40d4-b4b4-6b540a6cf3b1" />
 
+![https://www.netc.navy.mil/portals/46/NSTC/Asset%202.png](https://www.netc.navy.mil/portals/46/NSTC/Asset%202.png)
 
 {% include albumcovers.html %}
 
