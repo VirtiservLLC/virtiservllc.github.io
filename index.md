@@ -10,7 +10,7 @@ mathjax: true
 The Power of Water: The promise and perils of California’s Salton Sea
 ABC News’ Mireya Villarreal visits @StateOfCalifornia 's largest inland lake, where nearby communities face hazards from exposed toxins, but also increased attention from a rush to mine a critical resource.
 April 17, 2023 @emit-sds
-[https://abcnews.com/video/98651722/](https://abcnews.com/video/98651722/)
+[@abcnews .com/video/98651722/](https://abcnews.com/video/98651722/) // ![https://saltonsea.jpl.nasa.gov/downloads/gallery/us_fish_and_wildlife.png](https://saltonsea.jpl.nasa.gov/downloads/gallery/us_fish_and_wildlife.png)
 <img   alt="image" src="https://github.com/user-attachments/assets/95bac882-640f-434e-b6a1-d2dbd987ac7b" />
 
 ![ @Nbcnews @cbs-news-data SALTON SEA @hulu @peacock I think the dude named Adam that cover the Salton sea, plz fwd](https://daac.ornl.gov/MASTER/guides/MASTER_GEMx_Spring_2026_Fig1.jpg)
