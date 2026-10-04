@@ -3,10 +3,13 @@ layout: default
 mathjax: true
 ---
 
-[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00) // [Eightball & MJG - Comin' Out Hard ](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0) // [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A)
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00) // [Eightball & MJG - Comin' Out Hard ](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0) // [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A) // [Jeezy - 4 Zones - Seen It All - 07 (Deluxe) @FedRadio](https://youtu.be/uXa04WHkOTM?list=PLPde4DJhkXgt9_KqY6W7ST-Crdo0Tl45U)
 
 --- 
 
+<img   alt="image" src="https://github.com/user-attachments/assets/95bac882-640f-434e-b6a1-d2dbd987ac7b" />
+
+![ @Nbcnews @cbs-news-data SALTON SEA @hulu @peacock I think the dude named Adam that cover the Salton sea, plz fwd](https://daac.ornl.gov/MASTER/guides/MASTER_GEMx_Spring_2026_Fig1.jpg)
 [dashboard.waterdata.usgs.gov/app/nwd/ @foratlanta hi @cityoflosangeles]( https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=bbox-%5B-84.01699%2C34.15198%2C-83.97592%2C34.18554%5D&view=%7B%22basemap%22%3A%22EsriImagery2%22%2C%22bounds%22%3A%22-84.01698606672585%2C34.1519811757313%2C-83.97591608228981%2C34.18553585228061%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Atrue%2C%22checkbox%22%3A%220%2C21%2C22%2C23%22%2C%22hiddenSubgroup%22%3A%22%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A0%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D ) ::  [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A)
 <img  alt="image" src="https://github.com/user-attachments/assets/9221e8da-7b93-4c4f-8cd3-86b66d532cd1" />
 
