@@ -3,10 +3,13 @@ layout: default
 mathjax: true
 ---
 
-[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI)
+[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // 
 
 --- 
 
+
+@howard-university-web-services the latrice known as Lana J HArris is offline on youtube, Hot97 has history with @Nbcnews radio but who knows how that filters down in the clear channel prostitution playlist pumper system logs @blackgirlscode [youtube.com/results?search_query=hot97+tv](https://www.youtube.com/results?search_query=hot97+tv)
+<img  alt="image" src="https://github.com/user-attachments/assets/82bb1ad8-10f4-46a1-ba84-3d7d4225fea0" />
 
 
 # Yo Gotti - Down In the DM 
