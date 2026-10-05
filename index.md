@@ -3,9 +3,16 @@ layout: default
 mathjax: true
 ---
 
-[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh)
+[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI)
 
 --- 
+
+
+
+# Yo Gotti - Down In the DM 
+@blackgirlscode hi @deptofwar it went down [@CityOfLosAngeles @ForATlatna @Webb @Salesforce - youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) @NBCNEWS @Cbs-news-data
+<img alt="image" src="https://github.com/user-attachments/assets/0317c334-6ad3-46b1-8187-04cd1724285f" />
+
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1647163917&color=%233f93fa&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/songsthatarentonscbackup" title="Songs That Aren&#x27;t On Sc" target="_blank" style="color: #cccccc; text-decoration: none;">Songs That Aren&#x27;t On Sc</a> · <a href="https://soundcloud.com/songsthatarentonscbackup/justin-bieber-beauty-and-a-beat-feat-nicki-minaj" title="Justin Bieber - Beauty And A Beat (feat. Nicki Minaj)" target="_blank" style="color: #cccccc; text-decoration: none;">Justin Bieber - Beauty And A Beat (feat. Nicki Minaj)</a></div>
 
