@@ -5,7 +5,7 @@ mathjax: true
 
 [Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f)
 
-
+[Resivoi9rs @foratlanta ](https://worldview.earthdata.nasa.gov/?v=-190.46521955511233,-83.15717858606062,160.92185031939553,89.7911448677987&l=Reference_Labels_15m(hidden),Admin_Boundaries(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(opacity=0.67),GRanD_Reservoirs,GRUMP_Settlements,GRanD_Dams,OPERA_L3_DIST-ALERT-HLS_Color_Index(disabled=9),HLS_L30_Nadir_BRDF_Adjusted_Reflectance(hidden),HLS_S30_Nadir_BRDF_Adjusted_Reflectance(hidden),Land_Water_Map&lg=true&tr=land_disturbance&t=2026-10-04-T18%3A32%3A23Z) 
 @doug-newman-nasa gm! our [Georgia Federal Employee manager](https://www.imdb.com/name/nm10239299/bio/) Kaeisha Bottoms is running for gov, Mr Kemp our current Gov is easy to contact about these reservoirs 
 Lake LAnier
 <img  alt="EMIT_L1B_RAD_001_20250624T151627_2517510_021" src="https://github.com/user-attachments/assets/2c3108d4-3a4c-4b6e-9fe8-424ea51ae9e0" />
