@@ -3,9 +3,14 @@ layout: default
 mathjax: true
 ---
 
-[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // 
+[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // [Whatcha Gonna Do · Peter Tosh _Legalize It_](https://youtu.be/G9QrgHK1fwo?si=xGh5pAmHskGpYiGv)
 
 --- 
+
+True Democracy · Steel Pulse
+[🎼_Steel Pulse - Chant A Psalm_ - youtu.be/4nony-xB3tE?list=RD4nony-xB3tE](https://youtu.be/4nony-xB3tE?list=RD4nony-xB3tE)
+[@nasa-jpl eventbrite.com/e/steel-pulse-at-georgia-theater-tickets-76559994003](https://www.eventbrite.com/e/steel-pulse-at-georgia-theater-tickets-76559994003) <~ @nasa-jpl I think erika went to this show with a lesbian in a mini Cooper hi @blackgirlscode @foratlanta 
+<img alt="image" src="https://github.com/user-attachments/assets/ea4288ed-2432-415d-907b-3c3b57f61a09" />
 
 
 @howard-university-web-services the latrice known as Lana J HArris is offline on youtube, Hot97 has history with @Nbcnews radio but who knows how that filters down in the clear channel prostitution playlist pumper system logs @blackgirlscode [youtube.com/results?search_query=hot97+tv](https://www.youtube.com/results?search_query=hot97+tv)
