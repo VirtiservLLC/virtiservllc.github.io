@@ -4,6 +4,24 @@ mathjax: true
 ---
 
 
+
+## The Terrifying Attack On Lucki At ComplexCon
+[`WATCH` - youtu.be/DN5TmYiHC0o?t=154](https://youtu.be/DN5TmYiHC0o?t=154)
+[@CityOfLosangeles @nasa-JPL ComplexCon 2026 Los Angeles Oct 3 & 4](https://www.complexcon.com/)
+<img   alt="image" src="https://github.com/user-attachments/assets/42169945-5da2-4303-be9a-3e89335069a8" />
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A289940100&color=%230085ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/meek-mill-dc" title="MEEK MILL" target="_blank" style="color: #cccccc; text-decoration: none;">MEEK MILL</a> · <a href="https://soundcloud.com/meek-mill-dc/froze-feat-lil-uzi-vert" title="Froze (feat. Lil Uzi Vert &amp; Nicki Minaj)" target="_blank" style="color: #cccccc; text-decoration: none;">Froze (feat. Lil Uzi Vert &amp; Nicki Minaj)</a></div>
+<img alt="image" src="https://github.com/user-attachments/assets/4866e8e1-6797-4727-a444-1c46dda06a89" />
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">ComplexCon is now open
+
+COMPLEXCON. LOS ANGELES, OCTOBER 3-4.
+
+GET YOUR TICKETS: https://t.co/u0BarZolpX https://t.co/sZVtQNHZDx</p>&mdash; Complex (@Complex) <a href="https://x.com/Complex/status/2106446346010161418?ref_src=twsrc%5Etfw">October 3, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
+![https://www.complexcon.com/_next/image?url=%2F2026%2Ftimeline%2F2025.jpg&w=3840&q=75](https://www.complexcon.com/_next/image?url=%2F2026%2Ftimeline%2F2025.jpg&w=3840&q=75)
+
 [https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC @nasa-pds](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC)
 <img   alt="D001R0008_597251228EDR_F0101_0010M2" src="https://github.com/user-attachments/assets/3ac903c9-9f77-4853-9208-993a4250eeb9" />
 
