@@ -13,6 +13,9 @@ mathjax: true
 @Blackgirlscode @Howard-university-web-services
 hi its rashard, I'm just struggling through some of the items Latrice and [Normani](https://www.billboard.com/artist/normani-kordei/) wanted me to reveal to them about finances @ford was a zero percent loan, so when I gave it to the title pawn for food I got caught in a loop where I'm paying my car note again and in MagicCity ain't no niggah gittin help takin kae uf no chiyle @la-county-isd @foratlanta it was over the top, a protest to fatherhood, anyway I spent about $4500. The louvers were to protect corals eyes from the intense Georgia sun, not hide who's in the car @nasa-jpl 
 
+<img   alt="image @Blackgirlscode @Howard-university-web-services
+hi its rashard, I'm just struggling through some of the items Latrice and [Normani](https://www.billboard.com/artist/normani-kordei/) wanted me to reveal to them about finances @ford was a zero percent loan, so when I gave it to the title pawn for food I got caught in a loop where I'm paying my car note again and in MagicCity ain't no niggah gittin help takin kae uf no chiyle @la-county-isd @foratlanta it was over the top, a protest to fatherhood, anyway I spent about $4500. The louvers were to protect corals eyes from the intense Georgia sun, not hide who's in the car @nasa-jpl  " src="https://github.com/user-attachments/assets/daf1feb4-8938-4672-967b-fbf4c31cd5ed" />
+
 True Democracy · Steel Pulse
 [🎼_Steel Pulse - Chant A Psalm_ - youtu.be/4nony-xB3tE?list=RD4nony-xB3tE](https://youtu.be/4nony-xB3tE?list=RD4nony-xB3tE)
 [@nasa-jpl eventbrite.com/e/steel-pulse-at-georgia-theater-tickets-76559994003](https://www.eventbrite.com/e/steel-pulse-at-georgia-theater-tickets-76559994003) <~ @nasa-jpl I think erika went to this show with a lesbian in a mini Cooper hi @blackgirlscode @foratlanta 
