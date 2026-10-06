@@ -3,6 +3,10 @@ layout: default
 mathjax: true
 ---
 
+
+this is persevere FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01 @nasa-pds
+<img   alt="FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01" src="https://github.com/user-attachments/assets/f0a07b1b-d2f3-4660-8eec-fe082ce69e82" />
+
 ![ @lmco https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg](https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg)
 
 [@blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator)
