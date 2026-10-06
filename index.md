@@ -4,6 +4,9 @@ mathjax: true
 ---
 
 
+insight [https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC)
+<img  alt="D000M0000_596535424ZPG_F0000_0106M1" src="https://github.com/user-attachments/assets/e244da64-e820-4c92-9e21-37cdcbd91df4" />
+
 this is persevere FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01 @nasa-pds [pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG)
 <img   alt="FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01" src="https://github.com/user-attachments/assets/f0a07b1b-d2f3-4660-8eec-fe082ce69e82" />
 
