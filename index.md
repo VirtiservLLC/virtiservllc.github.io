@@ -7,6 +7,9 @@ mathjax: true
 # @nasa-pds /@nasa-jpl its [WorldSpaceWeek](https://www.worldspaceweek.org/) @CityOfLosAngeles @NBCNEWS
 @Google i hope that came out right [doodles.google/doodle/`space-week-2026-day-1`/](https://doodles.google/doodle/space-week-2026-day-1/)
 
+[https://jwst-docs.stsci.edu/accessing-jwst-data/jwst-science-data-overview#gsc.tab=0](https://jwst-docs.stsci.edu/accessing-jwst-data/jwst-science-data-overview#gsc.tab=0) // [https://esawebb.org/images/weic2620a/](https://esawebb.org/images/weic2620a/) 
+@ESA hi i cant find @nasa-jpl raw images for webb ... @NBCNEWS LANAJHARRiS]() you talk like cspan in private so i just got letdown @newshour help her with insight @Caltech 
+![https://cdn.esawebb.org/archives/images/publicationjpg/weic2620a.jpg](https://cdn.esawebb.org/archives/images/publicationjpg/weic2620a.jpg) 
 ![https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif)
 
 ## The Terrifying Attack On [Lucki](https://www.thefader.com/2026/10/05/lucki-injured-after-alleged-stabbing-at-complexcon) At [ComplexCon](https://www.tmz.com/2026/10/04/lucki-in-violent-fight-at-complexcon-with-playboi-carti-near/)
