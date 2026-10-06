@@ -9,6 +9,9 @@ mathjax: true
 --- 
 
 
+@nasa-jpl I'm living daily working out of @Cityoflosangeles , @nassa-jpl you kept your word, its just available resources  . . . I'll check mars 
+<img   alt="image" src="https://github.com/user-attachments/assets/06026c14-f955-43b7-9497-e26e6065c77d" />
+
 @nasa-jpl its not fair, you guys supported my abandonment in a lot of ways... is adultery an issue there for @deptofwar to investigate ? its treason 
 [youtube.com/@hot97/videos](https://www.youtube.com/@hot97/videos) @ForAtlanta [T.I. - LET 'EM KNOW ](https://youtu.be/mcg4z1gGbEw?t=5)
 <img   alt="image" src="https://github.com/user-attachments/assets/728e1e45-2cd3-4933-b80f-046768478bdf" />
