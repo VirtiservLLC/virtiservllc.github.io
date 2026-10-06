@@ -4,9 +4,14 @@ mathjax: true
 ---
 
 [Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // [Whatcha Gonna Do · Peter Tosh _Legalize It_](https://youtu.be/G9QrgHK1fwo?si=xGh5pAmHskGpYiGv) // True Democracy · Steel Pulse
-[🎼_Steel Pulse - Chant A Psalm_ - youtu.be/4nony-xB3tE?list=RD4nony-xB3tE](https://youtu.be/4nony-xB3tE?list=RD4nony-xB3tE)
+[🎼_Steel Pulse - Chant A Psalm_ - youtu.be/4nony-xB3tE?list=RD4nony-xB3tE](https://youtu.be/4nony-xB3tE?list=RD4nony-xB3tE) // [T.I. - LET 'EM KNOW ](https://youtu.be/mcg4z1gGbEw?t=5)
 
 --- 
+
+
+@nasa-jpl its not fair, you guys supported my abandonment in a lot of ways... is adultery an issue there for @deptofwar to investigate ? its treason 
+[youtube.com/@hot97/videos](https://www.youtube.com/@hot97/videos) @ForAtlanta [T.I. - LET 'EM KNOW ](https://youtu.be/mcg4z1gGbEw?t=5)
+<img   alt="image" src="https://github.com/user-attachments/assets/728e1e45-2cd3-4933-b80f-046768478bdf" />
 
 @Howard-university-web-services @Blackgirlscode @ForAtlanta
 ok the girl I was going out with as I said earlier "Latrice Fitzpatrick" is some sort of cloud... My Latrice had arms equal to mine but female. This lady supahChunkY!!! I think its Robin Barnes that's married to Robert, unless Latrice gained wieght @CityOfLosAngeles @Whitehouse @DHS-GOV - Rashard [google.com/search?Robin Barnes](https://www.google.com/search?sca_esv=f7bba631c4ced173&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnt6emBBpuQ5cD2_VCxYse2tu0i8kQ:1791250937505&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2no1YAFtlsByIZaJlK7yr6gIQnNXX16KI5TUYfGThGd0KzSsJidLcQnIWbc_jksvEk-g0_vBYR42uDgG7gj1RCgnINtsAenmYK6v_eHbXtFLIgwxqoqnvcFMVPRang2m7ejpbFvphKTjivAlasqA4w-Q-KMtiw&q=robin+barnes&sa=X&sqi=2&ved=2ahUKEwi9ntXeoaSXAxXMJ0QIHcXKOoEQtKgLegQIIhAB&biw=605&bih=945&dpr=1#sv=CAMSURoyKhBlLVNveF83UzV0TTFFcFhNMg5Tb3hfN1M1dE0xRXBYTToONUc3ZTNOcU9sZUIwM00gBCoXCgFzEhBlLVNveF83UzV0TTFFcFhNGAEwARgHIOPf3ZANSggQAhgBIAIoAQ)
