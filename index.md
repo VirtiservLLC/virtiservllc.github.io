@@ -9,6 +9,8 @@ mathjax: true
 --- 
 
 # 🗺️@ForAtlanta @ESA Surface WaTER 
+<img width="1080" height="1080" alt="ECOv002_L4T_ESI_46645_005_17SLT_20260926T173120_0713_02" src="https://github.com/user-attachments/assets/82413475-0fd2-4be4-a60d-46249422242a" />
+
 lAKE lANEIR AND hARTWELL [Under Mi Sensi · Barrington Levy @bLACKgIRLScODE HI](https://youtu.be/uozhx1xeTDg?list=RDuozhx1xeTDg)
 [🗺️browser.dataspace.copernicus.eu/?zoom=10&lat=34.1442&lng=-=layers🗺️](https://browser.dataspace.copernicus.eu/?zoom=10&lat=34.1442&lng=-83.11981&themeId=DEFAULT-THEME&visualizationUrl=U2FsdGVkX1%2FVDAggktnneN8xQdj0egbQRPEEF2YZrShNSogCA4BRexgrFxRPu%2F7e1LRQck60sCaDntFd1YUNWp%2BKwkQ%2BX8IKyDtMq1n6kIJjGLdEEi%2BC8XlD8guPW6fn&datasetId=S2_L2A_CDAS&fromTime=2026-09-27T00%3A00%3A00.000Z&toTime=2026-09-27T23%3A59%3A59.999Z&layerId=8-NDSI&demSource3D=%22MAPZEN%22&cloudCoverage=30&dateMode=SINGLE&panel=layers)
 
