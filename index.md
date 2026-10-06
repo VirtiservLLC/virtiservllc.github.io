@@ -6,7 +6,8 @@ mathjax: true
 
 # @nasa-pds /@nasa-jpl its [WorldSpaceWeek](https://www.worldspaceweek.org/) @CityOfLosAngeles @NBCNEWS
 @Google i hope that came out right [doodles.google/doodle/`space-week-2026-day-1`/](https://doodles.google/doodle/space-week-2026-day-1/)
-![https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png](https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png)
+
+![https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif)
 
 ## The Terrifying Attack On [Lucki](https://www.thefader.com/2026/10/05/lucki-injured-after-alleged-stabbing-at-complexcon) At [ComplexCon](https://www.tmz.com/2026/10/04/lucki-in-violent-fight-at-complexcon-with-playboi-carti-near/)
 [`WATCH` - youtu.be/DN5TmYiHC0o?t=154](https://youtu.be/DN5TmYiHC0o?t=154)
@@ -106,7 +107,9 @@ this is persevere FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01 @nasa-p
 # @nasa-pds /@nasa-jpl its [WorldSpaceWeek](https://www.worldspaceweek.org/) @CityOfLosAngeles @NBCNEWS
 @Google i hope that came out right [doodles.google/doodle/`space-week-2026-day-1`/](https://doodles.google/doodle/space-week-2026-day-1/)
 ![https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png](https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png)
-![https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif)
+
+
+![https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png](https://www.gstatic.com/marketing-cms/cd/e8/70c739c1482ebbfb311b69403e97/space-week-2026-day-1-6753651837111155-lsg2x.png)
 
 # Bouncing Cats 
 [@Blackgirlscode @Howard-university-web-services @nasa-jpl @nasa-pds @Cityoflosangeles @longbeachinnovationteam @stateofCalifornia @saccounty](https://dn721906.ca.archive.org/0/items/136339277/136339277.mp4)
