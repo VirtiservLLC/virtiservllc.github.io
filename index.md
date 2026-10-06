@@ -8,6 +8,11 @@ mathjax: true
 
 --- 
 
+![https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05035/opgs/edr/ncam/NRB_844468973EDR_S1250558NCAM00594M_.JPG](https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05035/opgs/edr/ncam/NRB_844468973EDR_S1250558NCAM00594M_.JPG)
+
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/02000/ids/edr/browse/fcam/FRF_2000_0844490490_621ECM_N0910970FHAZ00206_01_295J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/02000/ids/edr/browse/fcam/FRF_2000_0844490490_621ECM_N0910970FHAZ00206_01_295J01_1200.jpg) 
+
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/02000/ids/edr/browse/ncam/NLF_2000_0844480574_534ECM_N0910970NCAM00501_01_295J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/02000/ids/edr/browse/ncam/NLF_2000_0844480574_534ECM_N0910970NCAM00501_01_295J01_1200.jpg) 
 
 @nasa-jpl I'm living daily working out of @Cityoflosangeles , @nasa-jpl you kept your word, its just available resources  . . . I'll check mars @doug-newman-nasa @eodis-nasa @usgs
 <img   alt="image" src="https://github.com/user-attachments/assets/06026c14-f955-43b7-9497-e26e6065c77d" />
