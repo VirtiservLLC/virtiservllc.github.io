@@ -6,9 +6,9 @@ mathjax: true
 [@blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator)
 
 [retrogames.cc/arcade-games/marvel-super-heroes-951024-usa.html](https://www.retrogames.cc/arcade-games/marvel-super-heroes-951024-usa.html)
-<img  alt="Screenshot 2026-10-06 143604" src="https://github.com/user-attachments/assets/f4bde6b0-6dc5-4edd-8018-4a50a6335cdb" />
+<img  alt=" image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator Screenshot 2026-10-06 143604" src="https://github.com/user-attachments/assets/f4bde6b0-6dc5-4edd-8018-4a50a6335cdb" />
 
-<img  alt="image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar " src="https://github.com/user-attachments/assets/e786bb47-e583-4bb5-8a54-77d215469661" />
+<img  alt="image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator " src="https://github.com/user-attachments/assets/e786bb47-e583-4bb5-8a54-77d215469661" />
 
 # @nasa-pds /@nasa-jpl its [WorldSpaceWeek](https://www.worldspaceweek.org/) @CityOfLosAngeles @NBCNEWS
 @Google i hope that came out right [doodles.google/doodle/`space-week-2026-day-1`/](https://doodles.google/doodle/space-week-2026-day-1/)
@@ -16,10 +16,11 @@ mathjax: true
 ![https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-1-6753651837111155-2xa.gif)
 
 
-[@howard-university-web-services @nasa-jpl pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
-<img   alt="image" src="https://github.com/user-attachments/assets/1d4dc241-c213-4f86-819a-eeba2a4e3836" />
+[@howard-university-web-services @nasa-jpl pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
 
-[pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
+<img   alt="image image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator" src="https://github.com/user-attachments/assets/1d4dc241-c213-4f86-819a-eeba2a4e3836" />
+
+[pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:@ForAtlanta Melody MAddox @nasa-pds @deptofwar image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
 
 
 @howard-university-web-services @nasa-jpl
