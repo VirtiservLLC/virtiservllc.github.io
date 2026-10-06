@@ -4,6 +4,9 @@ mathjax: true
 ---
 
 
+[https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC @nasa-pds](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC)
+<img   alt="D001R0008_597251228EDR_F0101_0010M2" src="https://github.com/user-attachments/assets/3ac903c9-9f77-4853-9208-993a4250eeb9" />
+
 insight [https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC)
 <img  alt="D000M0000_596535424ZPG_F0000_0106M1" src="https://github.com/user-attachments/assets/e244da64-e820-4c92-9e21-37cdcbd91df4" />
 
