@@ -5,8 +5,9 @@ mathjax: true
 
 ![https://upload.wikimedia.org/wikipedia/commons/5/59/Intel_pentium_iii_xeon_800_sl4h8_top.png](https://upload.wikimedia.org/wikipedia/commons/5/59/Intel_pentium_iii_xeon_800_sl4h8_top.png)
 
-
+[pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
 <img   alt="image" src="https://github.com/user-attachments/assets/1d4dc241-c213-4f86-819a-eeba2a4e3836" />
+
 [pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
 
 ![https://live.staticflickr.com/4850/45335488614_f6ff48dfec_3k.jpg](https://live.staticflickr.com/4850/45335488614_f6ff48dfec_3k.jpg) 
