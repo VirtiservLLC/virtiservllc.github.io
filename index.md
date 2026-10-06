@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-@ForAtlanta Melody MAddox 
+[@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://www.dekalbsheriff.org/wp-content/uploads/2024/10/Sheriff-Star-No-Background.png) i broke latrice blog, its so loud i had to post a screenshot, do you know about rob ? i been getting harrassed for @deptofwar mentions @whitehouse  in @Stateofcalifornia 
 [https://www.dekalbsheriff.org/about-us/](https://www.dekalbsheriff.org/about-us/)
 ![https://www.dekalbsheriff.org/wp-content/uploads/2019/12/Sheriff-Melody-M.-Maddox-298x300.jpg](https://www.dekalbsheriff.org/wp-content/uploads/2019/12/Sheriff-Melody-M.-Maddox-298x300.jpg) // ![https://www.dekalbsheriff.org/wp-content/uploads/2020/02/SHERIFF-MELODY-M-MADDOX-300x200.png](https://www.dekalbsheriff.org/wp-content/uploads/2020/02/SHERIFF-MELODY-M-MADDOX-300x200.png) // 
 <img   alt="image" src="https://github.com/user-attachments/assets/4928f68a-189b-4a83-8fe9-b4b2adb5968b" />
