@@ -8,6 +8,17 @@ mathjax: true
 
 --- 
 
+
+@Howard-university-web-services @Blackgirlscode hi latrice, there are a couple girls that identify themselves to me as latrice and I am intimate, or have been. You people my color and size are under ethic cleansing orders by los angeles's destitution mob... So I'm lonely and the girls are talking via some sonic weapon that send concentrated beams into a human and they are talking like a telephone. The yold me as Latrice to use virtiserv LLC like I planned to and I am still with @nasa-jpl so @USSF-ORBiT / spaceforce.mil is my parent company under @whitehouse, I don't want to embarrass you, did you get angry at my gist on @github ? IDK if to say congrats, but I will never pollute your bedroom! @ForAtlanta after Dance411 the girls have kept me on a string, but now as they age I want to make sure any desired connections are legal in the eyes of the state. I don't want to support the pro adultery movement ... Im sorry if I could not see you Latrice. You broke up with me because I wrote your name in my graffiti peice. I had to see who was safe in the company of my kid. So guess what, I did it for coral. Thanks for telling me to buy her a bed - rashard ... @CityOfLosAngeles @nasa-jpl whatever [LatriceFitzpatrick]() is not something I want to abandon, but with the details, how she acts and the bedroom breaking in Atlanta and Alpharetta I need gentle closure that does not include castration threats @nfl @newshour ... I'll write more later @hulu @netflix and @disney I'm just trying to get out of everyone's way, I really like my new job @eodis-nasa earth observation distributed systems /// @doug-newman-nasa I will not pollute our platoon @nasa / @nasa-pds with adultery... I have the California constitution and Keisha BOttoms is still working to resolve Erika's abandonment and treasonus coup participation with playboy enterprises @deptofwar @whitehouse
+
+<img alt="image" src="https://github.com/user-attachments/assets/10c80361-a971-47e2-80cc-0eea23873d53" />
+<img  alt="image" src="https://github.com/user-attachments/assets/e32e6a57-6d86-413c-a720-c260534d3e83" />
+
+[zola.com/wedding/robandtricedominicanrepublic/wedding_party](https://www.zola.com/wedding/robandtricedominicanrepublic/wedding_party)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/cb1bb0e5-f0ee-40b9-8e06-03b5bfe406b5" />
+
+
 ### $2,000 S197 Mustang GT Budget Build 
 [`WATCH` - _Stock 2006 S197 Transformation!_](https://youtu.be/XTIpMubXTDk?si=dSdxqO4e5HN6h-jk)
 @Blackgirlscode @Howard-university-web-services
