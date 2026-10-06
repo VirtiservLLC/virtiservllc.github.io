@@ -3,7 +3,28 @@ layout: default
 mathjax: true
 ---
 
+
+[https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC @nasa-pds](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC)
+<img   alt="D001R0008_597251228EDR_F0101_0010M2" src="https://github.com/user-attachments/assets/3ac903c9-9f77-4853-9208-993a4250eeb9" />
+
+insight [https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC)
+<img  alt="D000M0000_596535424ZPG_F0000_0106M1" src="https://github.com/user-attachments/assets/e244da64-e820-4c92-9e21-37cdcbd91df4" />
+
+this is persevere FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01 @nasa-pds [pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG)
+<img   alt="FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01" src="https://github.com/user-attachments/assets/f0a07b1b-d2f3-4660-8eec-fe082ce69e82" />
+
+![ @lmco https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg](https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg)
+
 [@blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator)
+[@howard-university-web-services @nasa-jpl pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
+
+<img   alt="image image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator" src="https://github.com/user-attachments/assets/1d4dc241-c213-4f86-819a-eeba2a4e3836" />
+
+![https://upload.wikimedia.org/wikipedia/commons/3/3e/InSight_mission_patch_v1.png @nasa-jpl @nbcnews @bbc @usatoday ](https://upload.wikimedia.org/wikipedia/commons/3/3e/InSight_mission_patch_v1.png) 
+
+[pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:@ForAtlanta Melody MAddox @nasa-pds @deptofwar image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
+
+![https://d2pn8kiwq2w21t.cloudfront.net/images/18-mission-current-InSight_adj.height-700.png](https://d2pn8kiwq2w21t.cloudfront.net/images/18-mission-current-InSight_adj.height-700.png) 
 
 [retrogames.cc/arcade-games/marvel-super-heroes-951024-usa.html](https://www.retrogames.cc/arcade-games/marvel-super-heroes-951024-usa.html)
 <img  alt=" image @nasa-jpl i dont have anyone to bring, @Cityoflosangeles @Stateofcalifornia https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator i forgot to create a ticket since the ad said open house @nasa-pds @nasa cani get some help ?!?! adultery is not a normal thing to live through @deptofwar @blackgirlscode https://www.eventbrite.com/e/explore-jpl-2026-tickets-1997060604026?aff=oddtdtcreator Screenshot 2026-10-06 143604" src="https://github.com/user-attachments/assets/f4bde6b0-6dc5-4edd-8018-4a50a6335cdb" />
