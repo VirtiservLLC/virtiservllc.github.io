@@ -9,7 +9,7 @@ mathjax: true
 --- 
 
 
-@nasa-jpl I'm living daily working out of @Cityoflosangeles , @nassa-jpl you kept your word, its just available resources  . . . I'll check mars 
+@nasa-jpl I'm living daily working out of @Cityoflosangeles , @nasa-jpl you kept your word, its just available resources  . . . I'll check mars @doug-newman-nasa @eodis-nasa @usgs
 <img   alt="image" src="https://github.com/user-attachments/assets/06026c14-f955-43b7-9497-e26e6065c77d" />
 
 @nasa-jpl its not fair, you guys supported my abandonment in a lot of ways... is adultery an issue there for @deptofwar to investigate ? its treason 
