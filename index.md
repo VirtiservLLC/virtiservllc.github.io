@@ -7,6 +7,9 @@ mathjax: true
 [@FORATLANTA Emails reveal clash between DeKalb CEO, sheriff over escaped inmates](https://www.11alive.com/article/news/local/emails-exchange-dekalb-ceo-sheriff-escaped-inmates/85-5feafbef-fcda-42e7-abc7-e47a88d46a65)
 <img alt="image" src="https://github.com/user-attachments/assets/04daca5a-8ca3-41fd-b623-f2877ed349b1" />
 
+
+<iframe src="https://archive.org/embed/nasa-earth-science-division-AvirisWildFireData" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
 ![https://upload.wikimedia.org/wikipedia/commons/5/59/Intel_pentium_iii_xeon_800_sl4h8_top.png](https://upload.wikimedia.org/wikipedia/commons/5/59/Intel_pentium_iii_xeon_800_sl4h8_top.png)
 
 [pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
