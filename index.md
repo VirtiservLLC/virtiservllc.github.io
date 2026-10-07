@@ -4,7 +4,16 @@ mathjax: true
 ---
 
 
-# @nasa-pds /@nasa-jpl its [WorldSpaceWeek](https://www.worldspaceweek.org/) @CityOfLosAngeles @NBCNEWS
+[@la-county-isd Holly J Mitchell @LACMTA ](https://theclimatecenter.org/about/people/senator-holly-j-mitchell/) this is what I do at the library but for weather [@la-county-isd  d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4 @ForAtlanta ](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4)
+
+### [@nasa-pds /@nasa-jpl](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4) its [WorldSpaceWeek](https://www.worldspaceweek.org/) 
+@CityOfLosAngeles @NBCNEWS hi @nasa-pds [KellyFast](https://plus.nasa.gov/video/behind-the-spacecraft-kelly-fast/), told me to watch for asteroids, it fell in priority @doug-newman-nasa as crazy as that sounds @eodis-nasa // [@CityOfLosAngeles eyes.nasa.gov/apps/`solar-system`/#/home](https://eyes.nasa.gov/apps/solar-system/#/home) // [eyes.nasa.gov/apps/`asteroids`/#/home](https://eyes.nasa.gov/apps/asteroids/#/home)
+<img  alt="image" src="https://github.com/user-attachments/assets/9c337e51-5a60-493c-8b6d-93e9b3fd8c65" />
+
+<iframe src="https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fiwakeupwithtoday%2Fvideos%2F720093662462747%2F&show_text=false&width=560&t=0" width="560" height="314" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
+
+<img  alt="image" src="https://github.com/user-attachments/assets/82bb9b01-e361-46dc-801a-19c95391d97f" />
+
 @Google i hope that came out right [doodles.google/doodle/`space-week-2026-day-1`/](https://doodles.google/doodle/space-week-2026-day-1/)
 
 [https://jwst-docs.stsci.edu/accessing-jwst-data/jwst-science-data-overview#gsc.tab=0](https://jwst-docs.stsci.edu/accessing-jwst-data/jwst-science-data-overview#gsc.tab=0) // [https://esawebb.org/images/weic2620a/](https://esawebb.org/images/weic2620a/) 
