@@ -3,6 +3,12 @@ layout: default
 mathjax: true
 ---
 
+@nasa-jpl is @isro on thuis one ? D000M0076_603267241RADLF0000_2696M2_0PCT [@esa https://an.rsl.wustl.edu/ins/AN/an3.aspx?](https://an.rsl.wustl.edu/ins/AN/an3.aspx?)
+<img  alt="D000M0076_603267241RADLF0000_2696M2_0PCT" src="https://github.com/user-attachments/assets/e04a7474-f76f-4d5b-a7eb-c1e667a7e089" />
+
+ [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) last image 
+<img  alt="InsightLastImage (2)" src="https://github.com/user-attachments/assets/b2ab0dc5-77db-47cf-8ba1-7f360ddff3cc" />
+
 @nasa-pds so if [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) is in recovery mode, thats what dead bus whats the next move @cityoflosangeles [KarenBass](https://www.congress.gov/member/karen-bass/B001270) plz guide me, its also an astrobiologymission. I have been spending alot of time with @USGS so my mind is on the earthquake monitoring they ordered, we from that perspective   and really dont know how many projects are being hurt by this lander sitting in recovery mode!!!! @TheSpaceDevs    ///////// [NASA's SpaceX Crew-12 Undocking](https://youtu.be/dGSqblvgLIE)
 <img alt="image" src="https://github.com/user-attachments/assets/0f311b4b-5027-4392-880a-c4b0a9e2a20a" />
 
