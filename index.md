@@ -3,10 +3,10 @@ layout: default
 mathjax: true
 ---
 
-@nasa-pds so if insight is in recovery mode, thats what dead bus whats the next move @cityoflosangeles [KarenBass](https://www.congress.gov/member/karen-bass/B001270) plz guide me, its also an astrobiologymission. I have been spending alot of time with @USGS so my mind is on the earthquake monitoring they ordered, we from that perspective   and really dont know how many projects are being hurt by this lander sitting in recovery mode!!!! @TheSpaceDevs    ///////// [NASA's SpaceX Crew-12 Undocking](https://youtu.be/dGSqblvgLIE)
+@nasa-pds so if [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) is in recovery mode, thats what dead bus whats the next move @cityoflosangeles [KarenBass](https://www.congress.gov/member/karen-bass/B001270) plz guide me, its also an astrobiologymission. I have been spending alot of time with @USGS so my mind is on the earthquake monitoring they ordered, we from that perspective   and really dont know how many projects are being hurt by this lander sitting in recovery mode!!!! @TheSpaceDevs    ///////// [NASA's SpaceX Crew-12 Undocking](https://youtu.be/dGSqblvgLIE)
 <img alt="image" src="https://github.com/user-attachments/assets/0f311b4b-5027-4392-880a-c4b0a9e2a20a" />
 
-### InSight Sols 1439-1445 Mission Manager Report
+### [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) Sols 1439-1445 Mission Manager Report
 InSight : The Little Lander That Could
  
 On 14 Dec. (Sol1440), telemetry received over our MRO overflight, the lnSight lander showed signs of surprising battery voltages.  Our knee in the curve for battery voltage may be higher than originally projected. This was also an indication that Dead Bus could be a possibility. 
