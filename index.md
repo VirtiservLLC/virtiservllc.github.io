@@ -3,6 +3,11 @@ layout: default
 mathjax: true
 ---
 
+@nasa-pds hi here is [the press kit](https://www.jpl.nasa.gov/news/press_kits/insight/launch/facts/), its on [sparc ](https://www.oracle.com/servers/sparc/) even on the lander ...  [@la-county-isd @LACMTA HOLLY J MiTCHELL](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) im being attacked for what im posting and someone is forcing me to type kendrick lamar @fbicyber 
+Contact your system administrator for more info.
+<img   alt="image" src="https://github.com/user-attachments/assets/fdf0a0c5-4582-452e-b8fa-a5c0154ec311" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/91774d47-5059-4085-af7e-b6957d2166c7" />
 
 ![https://www.jpl.nasa.gov/news/press_kits/insight/assets/images/facts/launch.png](https://www.jpl.nasa.gov/news/press_kits/insight/assets/images/facts/launch.png) 
 
