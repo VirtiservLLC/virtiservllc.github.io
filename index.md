@@ -4,7 +4,7 @@ mathjax: true
 ---
 
 ### Pentagon Base Access Blocked, Siberia Plague Death & [Trump $5K Check @whitehouse](https://trumpcard.gov/)
-[The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris)
+[The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris) /// [`WATCH` - youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw](https://youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw)
 <img alt="image" src="https://github.com/user-attachments/assets/f1ce020f-9a85-4958-9e94-61d32b6a8e36" />
 
 ![https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75](https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75)
