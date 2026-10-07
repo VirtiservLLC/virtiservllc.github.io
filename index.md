@@ -7,6 +7,22 @@ mathjax: true
 [The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris) /// [`WATCH` - youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw](https://youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw) @BlackGirlsCode Dear Lana/Chloe [centcom.mil/CENTCOM-AOR/Iran/](https://www.centcom.mil/CENTCOM-AOR/Iran/) has one perspective on the outline of why our government is involved with this conflict. Read the full document! @ForAtlanta! [centcom.mil/CENTCOM-AOR/Iran/](https://www.centcom.mil/CENTCOM-AOR/Iran/) its land grabber, prostitution cover up shit on both sides from what i saw `
 Starting with nationwide municipal elections in 2003 and continuing through Majles elections in 2004, conservatives reestablished control over Iran’s elected government institutions, which culminated with the August 2005 inauguration of hardliner Mahmud AHMADI-NEJAD as president. His controversial reelection in June 2009 sparked nationwide protests over allegations of electoral fraud. These protests were quickly suppressed, and the political opposition that arose as a consequence of AHMADI-NEJAD’s election was repressed. Deteriorating economic conditions due primarily to government mismanagement and international sanctions prompted at least two major economically based protests ` sounds like [@CityOfLosAngeles ](https://abc7.com/post/no-kings-protests-2026-chaos-unfolds-thousands-gather-downtown-los-angeles-arrests-made/18795848/)
 <img alt="image" src="https://github.com/user-attachments/assets/f1ce020f-9a85-4958-9e94-61d32b6a8e36" />
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">An American president is talking about Los Angeles and San Diego being “taken out.”
+
+Where the hell is Congress?
+
+This is dangerous. The time to stand up is NOW. https://t.co/1PVG6PHb7m</p>&mdash; Gavin Newsom (@GavinNewsom) <a href="https://x.com/GavinNewsom/status/2107562640335950183?ref_src=twsrc%5Etfw">October 6, 2026 @Saccounty @StateOfCalifornia </a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">After sending the National Guard and Marines to occupy California, Donald Trump is now saying our foreign enemies should “take out” Los Angeles and San Diego.
+
+He is deranged and dangerous.</p>&mdash; Gavin Newsom (@GavinNewsom) @Saccounty @StateOfCalifornia <a href="https://x.com/GavinNewsom/status/2107288831112466787?ref_src=twsrc%5Etfw">October 6, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
+
 <img  alt="image" src="https://github.com/user-attachments/assets/95e17886-4e97-4bc3-b5b1-5b32c82ccce6" />
 
 <img   alt="image" src="https://github.com/user-attachments/assets/69855106-5272-4e5d-92f7-f4e49e05e215" />
