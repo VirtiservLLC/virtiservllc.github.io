@@ -7,6 +7,11 @@ mathjax: true
 [@la-county-isd Holly J Mitchell @LACMTA ](https://theclimatecenter.org/about/people/senator-holly-j-mitchell/) this is what I do at the library but for weather [@la-county-isd  d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4 @ForAtlanta ](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4)
 
 ### [@nasa-pds /@nasa-jpl](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4) its [WorldSpaceWeek](https://www.worldspaceweek.org/) 
+[eyes.nasa.gov/apps/`solar-system`/#/home](https://eyes.nasa.gov/apps/solar-system/#/home)
+@nasa-jpl the metro has a supahFresh kiosk [https://eyes.nasa.gov/apps/solar-system/#/home](https://eyes.nasa.gov/apps/solar-system/#/home) if you use the check boxes in the layers panel, you can add asteroids @blackgirlscode its not as fancy as the asteroid webapp but its just an index at this level, that's actual work to see what's headed this way... @nasa-pds upgrades soon or JupyterNoteBook ? @TheSpaceDevs please guide me to a JupyterNotebook that can help me with tracking asteroids @BlueOrgin hi @nasa @whitehouse @deptofwar - Rashard:ActiveMission_M_R_O hi @blackgirlscode [@CityOfLosAngeles eyes.nasa.gov/apps/`solar-system`/#/home](https://eyes.nasa.gov/apps/solar-system/#/home)
+<img alt="image" src="https://github.com/user-attachments/assets/16b462bc-b34b-4512-b4f6-c96eb5eb241b" />
+
+
 @CityOfLosAngeles @NBCNEWS hi @nasa-pds [KellyFast](https://plus.nasa.gov/video/behind-the-spacecraft-kelly-fast/), told me to watch for asteroids, it fell in priority @doug-newman-nasa as crazy as that sounds @eodis-nasa // [@CityOfLosAngeles eyes.nasa.gov/apps/`solar-system`/#/home](https://eyes.nasa.gov/apps/solar-system/#/home) // [eyes.nasa.gov/apps/`asteroids`/#/home](https://eyes.nasa.gov/apps/asteroids/#/home)
 <img  alt="image" src="https://github.com/user-attachments/assets/9c337e51-5a60-493c-8b6d-93e9b3fd8c65" />
 
