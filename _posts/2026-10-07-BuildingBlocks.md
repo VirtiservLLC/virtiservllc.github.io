@@ -27,6 +27,17 @@ MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - gi
 
 ![https://upload.wikimedia.org/wikipedia/commons/3/3e/InSight_mission_patch_v1.png @nasa-jpl @nbcnews @bbc @usatoday ](https://upload.wikimedia.org/wikipedia/commons/3/3e/InSight_mission_patch_v1.png) 
 
+
+from: ### [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) Sols 1439-1445 Mission Manager Report
+InSight : The Little Lander That Could
+>The lander is in Dead Bus mode. This is the most likely scenario. In this case we would not hear from the lander either on the next scheduled pass, today 19 Dec. (ODY_NSY_2022_354_04).
+ 
+
+>The Project will be holding a status meeting shortly after the next scheduled overflight (ODY_NSY_2022_354_04, Last bit time 2022-354T19:30:42.000 UTC 2022-12-20 11:30:42 PST).  The Lander and SEIS are nominal except for the battery and this decline to Dead Bus is now expected.  No Anomaly Response Team will be formed, as the project has set the criteria of two unexplained missed passes to call End Of Mission (EOM).  The Project will send an updated status once we know more.
+
+[@nasa-pds @disney nasa.gov/wp-content/uploads/2024/01/nasa-2023-workshop-ppt-ale-update.pdf](https://www.nasa.gov/wp-content/uploads/2024/01/nasa-2023-workshop-ppt-ale-update.pdf)
+<img  alt="image" src="https://github.com/user-attachments/assets/b2029d32-9e6f-4a5b-8404-e8fb112bcb19" />
+
 @libraryofcongress hi please help [Governor Newsom](https://www.gov.ca.gov/) talk to
 @NewYorkCityCouncil @cityofnewyork 
 
