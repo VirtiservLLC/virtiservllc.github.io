@@ -9,9 +9,11 @@ Starting with nationwide municipal elections in 2003 and continuing through Majl
 <img alt="image" src="https://github.com/user-attachments/assets/f1ce020f-9a85-4958-9e94-61d32b6a8e36" />
 <img  alt="image" src="https://github.com/user-attachments/assets/95e17886-4e97-4bc3-b5b1-5b32c82ccce6" />
 
-<img   alt="image" src="https://github.com/user-attachments/assets/ec197b64-b312-497d-9735-03b59bfa69a2" />
+
 [abc7.com/post/no-kings-protests-2026-`chaos-unfolds-thousands-gather-downtown-los-angeles`-arrests-made/18795848/](https://abc7.com/post/no-kings-protests-2026-chaos-unfolds-thousands-gather-downtown-los-angeles-arrests-made/18795848/)
 <img   alt="image" src="https://github.com/user-attachments/assets/5d9811f9-f6af-4ca3-9074-ce5b65ff07ed" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/ec197b64-b312-497d-9735-03b59bfa69a2" />
 
 ![https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75](https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75)
 Democratic senator says Pentagon denied him access to US base in Qatar ‘to hide the costs’ of Iran war
