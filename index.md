@@ -3,6 +3,17 @@ layout: default
 mathjax: true
 ---
 
+
+@saccounty hi its rashard, Fred Arriba son by Erika... I supposedly have someone interested in doing everything erika never did... tell arriba that!!! he will say, why didnt you listen to me . . . anyway Mr Trump is highly offe4nsive to Mr Newsom... @StateOfCalifornia [Governor Newsom](https://www.c-span.org/program/public-affairs-event/gov-gavin-newsom-d-ca-delivers-remarks-honoring-californias-volunteers/686232) hi its Rashard From [NASA Fire @eodis-nasa @nasa-jpl](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs;@-100.0,40.0,4.0z) , im responding to your [Podcast](https://www.iheartmedia.com/press/iheartpodcasts-and-california-governor-gavin-newsom-announce-new-solo-podcast-gavin-newsom) on [Twitter](https://x.com/GavinNewsom/status/2107562640335950183) [[1](https://opensource.twitter.dev/projects/)] where you said 
+
+
+An American president is talking about Los Angeles and San Diego being “taken out.”
+Where the hell is [Congress](https://www.congress.gov/member/karen-bass/B001270)?
+This is dangerous. The time to stand up is NOW.
+
+@libraryofcongress hi please help [Governor Newsom](https://www.gov.ca.gov/) talk to
+@NewYorkCityCouncil @cityofnewyork 
+
 @nasa-jpl is @isro on thuis one ? D000M0076_603267241RADLF0000_2696M2_0PCT [@esa https://an.rsl.wustl.edu/ins/AN/an3.aspx?](https://an.rsl.wustl.edu/ins/AN/an3.aspx?)
 <img  alt="D000M0076_603267241RADLF0000_2696M2_0PCT" src="https://github.com/user-attachments/assets/e04a7474-f76f-4d5b-a7eb-c1e667a7e089" />
 
