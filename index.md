@@ -7,6 +7,8 @@ mathjax: true
 
 ---
 
+<iframe src="https://archive.org/embed/DJ_Drama_and_Kash_Doll_-_Back_On_Dexter-2023" width="500" height="30" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
 ## Fire and Ice
 is a 1983 American animated epic dark fantasy adventure film directed by Ralph Bakshi. The film, a collaboration between Bakshi and [Frank Frazetta](https://www.frazettagirls.com/pages/gallery), was distributed by 20th Century Fox - [FANDOM](https://20thcenturystudios.fandom.com/wiki/Fire_and_Ice_(1983_film)) @foxnews if [20th Century Fox @disney](https://disney.github.io/) is a distributor @nasa-jpl i need to have the production company for the [martian clear me @whitehouse @deptofwar, @foratlanta](https://archive.org/download/the.-martian.-2015.-extended.-1080p.-brrip.x-264.-aac-etrg/The.Martian.2015.EXTENDED.1080p.BRRip.x264.AAC-ETRG.mp4) , here is an @iptv issue on copyrighting to look at @blckgirlscode [DMCA takedown notices from 20th Century Studio Inc.
  #37989](https://github.com/iptv-org/iptv/issues/37989)
