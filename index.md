@@ -3,7 +3,10 @@ layout: default
 mathjax: true
 ---
 
-[@cityOfLosAngeles Mayor Bass,  - youtu.be/NjxsWsDdrqg?t=43](https://youtu.be/NjxsWsDdrqg?t=43) LA officials speak about upcoming safety plans for potential [El Niño](https://www.jpl.nasa.gov/news/nasa-european-sea-level-mission-homes-in-on-el-nino/) winter storms 
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A733188313&color=%234399ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/josh-calhoun-585176683" title="Josh Calhoun" target="_blank" style="color: #cccccc; text-decoration: none;">Josh Calhoun</a> · <a href="https://soundcloud.com/josh-calhoun-585176683/the-mouse-and-the-mask" title="Danger Doom - The Mouse and the Mask full album" target="_blank" style="color: #cccccc; text-decoration: none;">Danger Doom - The Mouse and the Mask full album</a></div>
+
+[@cityOfLosAngeles _Mayor Bass_,  - youtu.be/NjxsWsDdrqg?t=43](https://youtu.be/NjxsWsDdrqg?t=43) LA officials speak about upcoming safety plans for potential [El Niño](https://www.jpl.nasa.gov/news/nasa-european-sea-level-mission-homes-in-on-el-nino/) winter storms 
 
 <img  alt="image" src="https://github.com/user-attachments/assets/2ca91193-c306-41c2-ad0d-2fe9bc825634" />
 
