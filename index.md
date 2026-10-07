@@ -3,9 +3,16 @@ layout: default
 mathjax: true
 ---
 
-[@cityOfLosAngeles Mayor Bass,  - youtu.be/NjxsWsDdrqg?t=43](https://youtu.be/NjxsWsDdrqg?t=43) LA officials speak about upcoming safety plans for potential El Niño winter storms 
+[@cityOfLosAngeles Mayor Bass,  - youtu.be/NjxsWsDdrqg?t=43](https://youtu.be/NjxsWsDdrqg?t=43) LA officials speak about upcoming safety plans for potential [El Niño](https://www.jpl.nasa.gov/news/nasa-european-sea-level-mission-homes-in-on-el-nino/) winter storms 
 
 <img  alt="image" src="https://github.com/user-attachments/assets/2ca91193-c306-41c2-ad0d-2fe9bc825634" />
+
+El Niño affects every continent on Earth. Discover some of its key impacts in this video. [Understanding El Niño & ENSO](https://www.noaa.gov/understanding-el-nino) /// [El Niño/La Niña Watch & PDO @nasa-jpl la-county-isd](https://sealevel.jpl.nasa.gov/data/el-nino-la-nina-watch-and-pdo/data/?page=0&per_page=40&order=publish_date+desc&search=&fancybox=true&multi_item=true&multi_item_match=publish_date&multi_item_sort%5B%5D=stereographic&multi_item_sort%5B%5D=mercator&category=203)
+
+[El Niño-Southern Oscillation (ENSO) Index](https://sealevel.jpl.nasa.gov/overlay-elnino/)
+[<video controls poster="https://svs.gsfc.nasa.gov/vis/a010000/a012100/a012114/s2f-1024_print.jpg" src="https://svs.gsfc.nasa.gov/vis/a010000/a012100/a012114/12098viz-1920-MASTER_high.mp4" />](https://svs.gsfc.nasa.gov/vis/a010000/a012100/a012114/12098viz-1920-MASTER_high.mp4)
+
+![https://sealevel.jpl.nasa.gov/rails/active_storage/disk/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaDdDVG9JYTJWNVNTSWhabXhtYVdGb2FETjBNak42WnpFNVp6azFaMm8xYUd4eWMybHNkUVk2QmtWVU9oQmthWE53YjNOcGRHbHZia2tpV1dsdWJHbHVaVHNnWm1sc1pXNWhiV1U5SWtWT1UwOWZjR3hoZEdWZk1qQXlOakE1TWpndWNHNW5JanNnWm1sc1pXNWhiV1VxUFZWVVJpMDRKeWRGVGxOUFgzQnNZWFJsWHpJd01qWXdPVEk0TG5CdVp3WTdCbFE2RVdOdmJuUmxiblJmZEhsd1pVa2lEbWx0WVdkbEwzQnVad1k3QmxRNkVYTmxjblpwWTJWZmJtRnRaVG9LYkc5allXdz0iLCJleHAiOm51bGwsInB1ciI6ImJsb2Jfa2V5In19--63541ee8c13160aab2a6f631aa7783709fe04846/ENSO_plate_20260928.png](https://sealevel.jpl.nasa.gov/rails/active_storage/disk/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaDdDVG9JYTJWNVNTSWhabXhtYVdGb2FETjBNak42WnpFNVp6azFaMm8xYUd4eWMybHNkUVk2QmtWVU9oQmthWE53YjNOcGRHbHZia2tpV1dsdWJHbHVaVHNnWm1sc1pXNWhiV1U5SWtWT1UwOWZjR3hoZEdWZk1qQXlOakE1TWpndWNHNW5JanNnWm1sc1pXNWhiV1VxUFZWVVJpMDRKeWRGVGxOUFgzQnNZWFJsWHpJd01qWXdPVEk0TG5CdVp3WTdCbFE2RVdOdmJuUmxiblJmZEhsd1pVa2lEbWx0WVdkbEwzQnVad1k3QmxRNkVYTmxjblpwWTJWZmJtRnRaVG9LYkc5allXdz0iLCJleHAiOm51bGwsInB1ciI6ImJsb2Jfa2V5In19--63541ee8c13160aab2a6f631aa7783709fe04846/ENSO_plate_20260928.png)
 
 // 
 [@la-county-isd Holly J Mitchell @LACMTA ](https://theclimatecenter.org/about/people/senator-holly-j-mitchell/) this is what I do at the library but for weather [@la-county-isd  d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4 @ForAtlanta ](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4) // [Black slave cemetery in Staten Island is buried under concrete and strip mall](https://youtu.be/z429mCJkroo?t=2) @cbs-news-data
