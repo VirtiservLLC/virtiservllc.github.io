@@ -3,6 +3,10 @@ layout: default
 mathjax: true
 ---
 
+[LAna J Harris](https://www.google.com/search?q=rico+nasty&sca_esv=42f20ce4def47eab&rlz=1CASLJZ_enUS1235&udm=2&biw=1920&bih=945&sxsrf=APpeQnvVNq_xU0pySStXKnajows9_9eSBg%3A1791395799286&ei=14fGat-CEfTfur8Pgo2mgQc&ved=2ahUKEwifypKyvaiXAxX0r-4BHYKGKXAQ4dUDegQIBhAN&uact=5&oq=rico+nasty&gs_lp=Egtnd3Mtd2l6LWltZyIKcmljbyBuYXN0eTIHECMYyQIYJzIHECMYyQIYJzILEAAYgAQYsQMYgwEyBRAAGIAEMgUQABiABDIFEAAYgAQyBRAAGIAEMgUQABiABDIFEAAYgAQyCxAAGIAEGLEDGIMBSMAhUNETWOEfcAF4AJABAJgBM6AB-gKqAQIxMLgBA8gBAPgBAZgCC6ACrQPCAggQABiABBixA8ICDhAAGIAEGIoFGLEDGIMBwgIKEAAYgAQYigUYQ8ICDRAAGIAEGIoFGEMYsQOYAwCIBgGSBwIxMaAHo0GyBwIxMLgHqgPCBwUwLjQuN8gHIoAIAQ&sclient=gws-wiz-img#sv=CAMSURoyKhBlLUtEM3VkZTBpc2RlYnZNMg5LRDN1ZGUwaXNkZWJ2TToOYVd3cl9RWFM0Um1uV00gBCoXCgFzEhBlLUtEM3VkZTBpc2RlYnZNGAEwARgHIKmrkJEJSggQAhgBIAIoAQ)
+<img alt="image" src="https://github.com/user-attachments/assets/3a7ce09c-522f-43e3-bd94-49e12c08e486" />
+<img alt="image" src="https://github.com/user-attachments/assets/3dd5bb60-5aea-4f75-9471-f374c374afc7" />
+
 <img  alt="snapshot-2026-09-25" src="https://github.com/user-attachments/assets/6791f411-1109-4965-aa97-9fcd63c8099e" />
 
 ## Hurricane Polo
@@ -14,12 +18,21 @@ mathjax: true
 
 <img  alt="image" src="https://github.com/user-attachments/assets/76afe263-bbac-4b25-9790-74556a2767a5" />
 
+[@forAtlanta](https://www.google.com/search?sca_esv=42f20ce4def47eab&rlz=1CASLJZ_enUS1235&sxsrf=APpeQntQtJisXENRx4aFtrjgYWUgGashzQ:1791395791909&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832QGGMdFXpDyzkQgEdtB8w9y513h_dJNevWM0LJgfK9j10QT4427mlOcJZp94RFv3ZlcmSaWMK94EzlVkt6GcuJz-V39aB5tlb-s2hwEgo8qiKbL3JGj6v_Epl4coXUvlTHMklBowN8mBkdB0BLbPO1cz9TBV5kQQaKBkdb3hXrxCI6Ce1A&q=lana+j+harris&sa=X&sqi=2&ved=2ahUKEwiisdCuvaiXAxXwJ0QIHW_pAIQQtKgLegQIIBAB&biw=1920&bih=945&dpr=1#sv=CAMSURoyKhBlLW0yXzRHQXJBbWgzeXFNMg5tMl80R0FyQW1oM3lxTToOemI3U3JkdVpRNnFHSU0gBCoXCgFzEhBlLW0yXzRHQXJBbWgzeXFNGAEwARgHIJPpsq0DSggQAhgBIAIoAQ)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/cf0ed8e0-3a36-41db-96ba-ad7802c79490" />
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A2131614840&color=%234399ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/ericabanks" title="Erica Banks" target="_blank" style="color: #cccccc; text-decoration: none;">Erica Banks</a> · <a href="https://soundcloud.com/ericabanks/church" title="Church" target="_blank" style="color: #cccccc; text-decoration: none;">Church</a></div>
+
 <img   alt="image" src="https://github.com/user-attachments/assets/c0d0ba07-88da-4584-a594-2fb701d964e5" />
 
 United States [Wiki](https://en.wikipedia.org/wiki/Hurricane_Polo#United_States_2) // [‘You learn something new’: Long Beach braces for Hurricane Polo swells](https://ktla.com/news/local-news/you-learn-something-new-long-beach-braces-for-hurricane-polo-swells/)
 In an effort to prevent similar damage to what Hurricane Marie caused, some walls to break waves were constructed in Long Beach, California.[57]
 
 As Polo approached the United States, flash flood watches were triggered in portions of Arizona on Septemeber 29.[58] Flood watches extended as far as Iowa.[59] Nevada Task Force One was deployed to New Mexico in advance of the hurricane as well.[60] On September 29, a flash flood emergency was issued for Doña Ana County, New Mexico, due to imminent dam failure as Polo approached.[61] The risk of severe thunderstorms in the Dallas–Fort Worth metroplex caused the cancellation of a homecoming parade in Fairview. The city government of Fort Worth opened two sandbagging sites on September 30 to give away 750 sandbags.[62] - [Wiki](https://en.wikipedia.org/wiki/Hurricane_Polo#United_States_2)
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6503e918-4993-448d-999f-b2993af427a7" />
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A733188313&color=%234399ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/josh-calhoun-585176683" title="Josh Calhoun" target="_blank" style="color: #cccccc; text-decoration: none;">Josh Calhoun</a> · <a href="https://soundcloud.com/josh-calhoun-585176683/the-mouse-and-the-mask" title="Danger Doom - The Mouse and the Mask full album" target="_blank" style="color: #cccccc; text-decoration: none;">Danger Doom - The Mouse and the Mask full album</a></div>
 
