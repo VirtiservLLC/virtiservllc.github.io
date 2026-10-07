@@ -3,6 +3,13 @@ layout: default
 mathjax: true
 ---
 
+
+
+Democratic senator says Pentagon denied him access to US base in Qatar ‘to hide the costs’ of Iran war
+[thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/)
+<img  alt="image" src="https://github.com/user-attachments/assets/6ee3f6c8-d7a7-41a0-9cca-6b83fb2b290a" />
+![https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png?w=2000&ssl=1](https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png)
+
 [LAna J Harris](https://www.google.com/search?q=rico+nasty&sca_esv=42f20ce4def47eab&rlz=1CASLJZ_enUS1235&udm=2&biw=1920&bih=945&sxsrf=APpeQnvVNq_xU0pySStXKnajows9_9eSBg%3A1791395799286&ei=14fGat-CEfTfur8Pgo2mgQc&ved=2ahUKEwifypKyvaiXAxX0r-4BHYKGKXAQ4dUDegQIBhAN&uact=5&oq=rico+nasty&gs_lp=Egtnd3Mtd2l6LWltZyIKcmljbyBuYXN0eTIHECMYyQIYJzIHECMYyQIYJzILEAAYgAQYsQMYgwEyBRAAGIAEMgUQABiABDIFEAAYgAQyBRAAGIAEMgUQABiABDIFEAAYgAQyCxAAGIAEGLEDGIMBSMAhUNETWOEfcAF4AJABAJgBM6AB-gKqAQIxMLgBA8gBAPgBAZgCC6ACrQPCAggQABiABBixA8ICDhAAGIAEGIoFGLEDGIMBwgIKEAAYgAQYigUYQ8ICDRAAGIAEGIoFGEMYsQOYAwCIBgGSBwIxMaAHo0GyBwIxMLgHqgPCBwUwLjQuN8gHIoAIAQ&sclient=gws-wiz-img#sv=CAMSURoyKhBlLUtEM3VkZTBpc2RlYnZNMg5LRDN1ZGUwaXNkZWJ2TToOYVd3cl9RWFM0Um1uV00gBCoXCgFzEhBlLUtEM3VkZTBpc2RlYnZNGAEwARgHIKmrkJEJSggQAhgBIAIoAQ)
 <img alt="image" src="https://github.com/user-attachments/assets/3a7ce09c-522f-43e3-bd94-49e12c08e486" />
 <img alt="image" src="https://github.com/user-attachments/assets/3dd5bb60-5aea-4f75-9471-f374c374afc7" />
