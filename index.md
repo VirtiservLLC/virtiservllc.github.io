@@ -3,9 +3,19 @@ layout: default
 mathjax: true
 ---
 🎶
-🎞️[Terminator 2: Judgment Day (VHS Rip From Showtime)](https://archive.org/details/terminator-2-judgment-day-vhs-mkv-encode)
+🎞️[Terminator 2: Judgment Day (VHS Rip From Showtime)](https://archive.org/details/terminator-2-judgment-day-vhs-mkv-encode)  // [Fire & Ice -The ANIMATED Movie In English](https://youtu.be/ENy82ESS2t4?si=dTU6auaWWlQ34_OO) // // [Fire and Ice](https://youtu.be/UbJIntnncb4?t=14)
+
 ---
 
+## Fire and Ice
+is a 1983 American animated epic dark fantasy adventure film directed by Ralph Bakshi. The film, a collaboration between Bakshi and Frank Frazetta, was distributed by 20th Century Fox - [FANDOM](https://20thcenturystudios.fandom.com/wiki/Fire_and_Ice_(1983_film)) @foxnews if [20th Century Fox @disney](https://disney.github.io/) is a distributor @nasa-jpl i need to have the production company for the [martian clear me @whitehouse @deptofwar, @foratlanta](https://archive.org/download/the.-martian.-2015.-extended.-1080p.-brrip.x-264.-aac-etrg/The.Martian.2015.EXTENDED.1080p.BRRip.x264.AAC-ETRG.mp4) , here is an @iptv issue on copyrighting to look at @blckgirlscode [DMCA takedown notices from 20th Century Studio Inc.
+ #37989](https://github.com/iptv-org/iptv/issues/37989)
+
+[imdb](https://www.imdb.com/title/tt0085542/)
+
+[<video loading="lazy" controls poster="https://thehande.wordpress.com/wp-content/uploads/2010/12/fire-and-ice.jpg" src="https://ia600802.us.archive.org/26/items/fire-and-ice-dvd-012026/FIRE_ICE.mp4" />](https://ia600802.us.archive.org/26/items/fire-and-ice-dvd-012026/FIRE_ICE.mp4)
+
+[<video  loading="lazy" controls poster="https://github.com/user-attachments/assets/654db530-cd1f-481b-bebb-8f171bb1e474" src="https://archive.org/download/136339277/MilkDropDemoRecording2026-10-07-155208.mp4" />](https://archive.org/download/136339277/MilkDropDemoRecording2026-10-07-155208.mp4)
 
 [Nipsey Hussle & DJ Drama - Mailbox Money-2015](https://archive.org/details/Nipsey_Hussle_and_DJ_Drama_-_Mailbox_Money-2015?webamp=default)
 <img  alt="image" src="https://github.com/user-attachments/assets/1d287524-b38f-4827-881d-bcb10f8bdefd" />
@@ -84,7 +94,7 @@ This is dangerous. The time to stand up is NOW. https://t.co/1PVG6PHb7m</p>&mdas
 He is deranged and dangerous.</p>&mdash; Gavin Newsom (@GavinNewsom) @Saccounty @StateOfCalifornia <a href="https://x.com/GavinNewsom/status/2107288831112466787?ref_src=twsrc%5Etfw">October 6, 2026</a></blockquote>
 <script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
 
-
+<img width="725" height="463" alt="image" src="https://github.com/user-attachments/assets/654db530-cd1f-481b-bebb-8f171bb1e474" />
 
 <img  alt="image" src="https://github.com/user-attachments/assets/95e17886-4e97-4bc3-b5b1-5b32c82ccce6" />
 
