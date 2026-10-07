@@ -3,8 +3,11 @@ layout: default
 mathjax: true
 ---
 
+### Pentagon Base Access Blocked, Siberia Plague Death & [Trump $5K Check @whitehouse](https://trumpcard.gov/)
+[The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris)
+<img alt="image" src="https://github.com/user-attachments/assets/f1ce020f-9a85-4958-9e94-61d32b6a8e36" />
 
-
+![https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75](https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75)
 Democratic senator says Pentagon denied him access to US base in Qatar ‘to hide the costs’ of Iran war
 [thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/) /// [@Deptofwar thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/](https://thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/)
 <img  alt="image" src="https://github.com/user-attachments/assets/6ee3f6c8-d7a7-41a0-9cca-6b83fb2b290a" />
