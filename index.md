@@ -3,6 +3,23 @@ layout: default
 mathjax: true
 ---
 
+<img  alt="snapshot-2026-09-25" src="https://github.com/user-attachments/assets/6791f411-1109-4965-aa97-9fcd63c8099e" />
+
+## Hurricane Polo
+[Biggest Hurricane Polo waves expected to hit today @nbcnews](https://youtu.be/7UxTnkKRupM?si=m4AdK8rHmlxMkDAg)
+
+[@longBeachInnovationteam hi @Eodis-nasa @LA-county-isd](https://worldview.earthdata.nasa.gov/?v=-159.58356566892786,1.799545650298647,-85.5267202332214,38.24939926318542&as=2026-09-22-T00%3A00%3A00Z&ae=2026-10-02-T00%3A00%3A00Z&l=Admin_Boundaries,DoS_International_Boundaries,Coastlines_15m(hidden),IMERG_Precipitation_Rate,VIIRS_SNPP_CorrectedReflectance_TrueColor&lg=true&tr=atmospheric_rivers&al=true&ab=on&t=2026-09-30-T00%3A00%3A00Z) // Hi @blackgirlscode idk how Lana wants her weather, but she can stop through @eodis-nasa Lana j Harris is my customer but she is young and mingling and I have to walk a fine line not to corrupt the deal! But she uses earthdata kinda heavy @doug-newman-nasa ,, about this Hurricane @Cbs-news-data, if Sept 30 was the day long beach got the biggest waves we have to realize the storm is in Mexico on that day. @nasa-jpl @podacc has some resources that can help guide the local councils @CityOFSantaMonica @CityOfLosAngeles to get an idea of how we can get more stable on the coast for sealevel rises @nbcnews [worldview.earthdata.nasa.gov/?v=-159.58356566892786,1.799545650298647,-85.5267202332214,38.24939926318542&as=2026-09-22-T00%3A00%3A00Z&ae=2026-10-02-T00%3A00%3A00Z&l=Admin_Boundaries,DoS_International_Boundaries,Coastlines_15m(hidden),IMERG_Precipitation_Rate,VIIRS_SNPP_CorrectedReflectance_TrueColor&lg=true&tr=atmospheric_rivers&al=true&ab=on&t=2026-09-30-T00%3A00%3A00Z](https://worldview.earthdata.nasa.gov/?v=-159.58356566892786,1.799545650298647,-85.5267202332214,38.24939926318542&as=2026-09-22-T00%3A00%3A00Z&ae=2026-10-02-T00%3A00%3A00Z&l=Admin_Boundaries,DoS_International_Boundaries,Coastlines_15m(hidden),IMERG_Precipitation_Rate,VIIRS_SNPP_CorrectedReflectance_TrueColor&lg=true&tr=atmospheric_rivers&al=true&ab=on&t=2026-09-30-T00%3A00%3A00Z)
+
+<img alt="image" src="https://github.com/user-attachments/assets/8dc6566d-0281-4829-8535-acf4b97fff2e" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/76afe263-bbac-4b25-9790-74556a2767a5" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/c0d0ba07-88da-4584-a594-2fb701d964e5" />
+
+United States [Wiki](https://en.wikipedia.org/wiki/Hurricane_Polo#United_States_2) // [‘You learn something new’: Long Beach braces for Hurricane Polo swells](https://ktla.com/news/local-news/you-learn-something-new-long-beach-braces-for-hurricane-polo-swells/)
+In an effort to prevent similar damage to what Hurricane Marie caused, some walls to break waves were constructed in Long Beach, California.[57]
+
+As Polo approached the United States, flash flood watches were triggered in portions of Arizona on Septemeber 29.[58] Flood watches extended as far as Iowa.[59] Nevada Task Force One was deployed to New Mexico in advance of the hurricane as well.[60] On September 29, a flash flood emergency was issued for Doña Ana County, New Mexico, due to imminent dam failure as Polo approached.[61] The risk of severe thunderstorms in the Dallas–Fort Worth metroplex caused the cancellation of a homecoming parade in Fairview. The city government of Fort Worth opened two sandbagging sites on September 30 to give away 750 sandbags.[62] - [Wiki](https://en.wikipedia.org/wiki/Hurricane_Polo#United_States_2)
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A733188313&color=%234399ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/josh-calhoun-585176683" title="Josh Calhoun" target="_blank" style="color: #cccccc; text-decoration: none;">Josh Calhoun</a> · <a href="https://soundcloud.com/josh-calhoun-585176683/the-mouse-and-the-mask" title="Danger Doom - The Mouse and the Mask full album" target="_blank" style="color: #cccccc; text-decoration: none;">Danger Doom - The Mouse and the Mask full album</a></div>
 
