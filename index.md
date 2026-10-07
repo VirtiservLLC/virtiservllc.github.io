@@ -3,8 +3,12 @@ layout: default
 mathjax: true
 ---
 
+[@cityOfLosAngeles Mayor Bass,  - youtu.be/NjxsWsDdrqg?t=43](https://youtu.be/NjxsWsDdrqg?t=43) LA officials speak about upcoming safety plans for potential El Niño winter storms 
 
-[@la-county-isd Holly J Mitchell @LACMTA ](https://theclimatecenter.org/about/people/senator-holly-j-mitchell/) this is what I do at the library but for weather [@la-county-isd  d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4 @ForAtlanta ](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4)
+<img  alt="image" src="https://github.com/user-attachments/assets/2ca91193-c306-41c2-ad0d-2fe9bc825634" />
+
+// 
+[@la-county-isd Holly J Mitchell @LACMTA ](https://theclimatecenter.org/about/people/senator-holly-j-mitchell/) this is what I do at the library but for weather [@la-county-isd  d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4 @ForAtlanta ](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4) // [Black slave cemetery in Staten Island is buried under concrete and strip mall](https://youtu.be/z429mCJkroo?t=2) @cbs-news-data
 
 ### [@nasa-pds /@nasa-jpl](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4) its [WorldSpaceWeek](https://www.worldspaceweek.org/) 
 [eyes.nasa.gov/apps/`solar-system`/#/home](https://eyes.nasa.gov/apps/solar-system/#/home)
