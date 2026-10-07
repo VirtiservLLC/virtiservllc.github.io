@@ -3,7 +3,25 @@ layout: default
 mathjax: true
 ---
 
-@nasa-jpl ![https://an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165](https://an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165)
+
+
+### InSight Sols 1439-1445 Mission Manager Report
+InSight : The Little Lander That Could
+ 
+On 14 Dec. (Sol1440), telemetry received over our MRO overflight, the lnSight lander showed signs of surprising battery voltages.  Our knee in the curve for battery voltage may be higher than originally projected. This was also an indication that Dead Bus could be a possibility. 
+
+On Sunday 18 Dec. (Sol 1444), we did not receive telemetry over the scheduled ODY overflight.  The orbiter hailed and listened, but did not receive anything from the surface.  At the point the team had narrowed the situation to three possibilities: The lander is operating normally and the comm pass on Sol 1443 (17 Dec.)  was missed due to some unknown cause. We consider this extremely unlikely. Since we did not get the new three-week sequence on board (SciMon 133) during the Saturday comm, the lander would have transitioned to its “runout” sequence, an additional week-long sequence that is appended to each 2-week SciMon sequence in case a new sequence doesn’t make it on board in time. The lander is in SAFE MODE. Safe mode reverts to a comm schedule stored on board called the WUTT (Wake Up Time Table). On 19 Dec., the operation team listened on DSS-14, over the X-band pass scheduled in the WUTT, but did not receive any signals.  This situation has therefore been ruled out.
+ [ @NASA Concludes Antenna Mishap Investigation, Releases Report - Jun 05, 2026 @nasa-JPL](https://www.nasa.gov/directorates/somd/space-communications-navigation-program/nasa-concludes-antenna-mishap-investigation-releases-report/) // [“Dead Bus” – NASA Retires InSight Mars Lander Mission After 4 Years on Red Planet @nasa-pds @nasa-giss](https://scitechdaily.com/dead-bus-nasa-retires-insight-mars-lander-mission-after-4-years-on-red-planet/)
+
+The lander is in Dead Bus mode. This is the most likely scenario. In this case we would not hear from the lander either on the next scheduled pass, today 19 Dec. (ODY_NSY_2022_354_04).
+ 
+
+The Project will be holding a status meeting shortly after the next scheduled overflight (ODY_NSY_2022_354_04, Last bit time 2022-354T19:30:42.000 UTC 2022-12-20 11:30:42 PST).  The Lander and SEIS are nominal except for the battery and this decline to Dead Bus is now expected.  No Anomaly Response Team will be formed, as the project has set the criteria of two unexplained missed passes to call End Of Mission (EOM).  The Project will send an updated status once we know more.
+
+ 
+
+On the science front, the special issue focusing on the large M4.7 event on Sol 1222 (May 4, 2022), continues to grow with an overview paper and papers about surface wave observations already accepted and many more in the review and revision process.
+@nasa-jpl [an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165](https://an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165)
 
 @nasa-pds i see there are fields talking about 
 <img   alt="image" src="https://github.com/user-attachments/assets/43c5dd6e-2999-4525-bb8f-96d54d5b3614" />
