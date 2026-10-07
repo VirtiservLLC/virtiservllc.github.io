@@ -4,12 +4,16 @@ mathjax: true
 ---
 
 ### Pentagon Base Access Blocked, Siberia Plague Death & [Trump $5K Check @whitehouse](https://trumpcard.gov/)
-[The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris) /// [`WATCH` - youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw](https://youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw)
+[The Lana Rundown](https://www.wikihow.com/Author/Lana-Harris) /// [`WATCH` - youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw](https://youtu.be/wGuooOMUzuU?si=T6zuMalrN8-vq0Zw) @BlackGirlsCode Dear Lana/Chloe [centcom.mil/CENTCOM-AOR/Iran/](https://www.centcom.mil/CENTCOM-AOR/Iran/) has one perspective on the outline of why our government is involved with this conflict. Read the full document! @ForAtlanta! [centcom.mil/CENTCOM-AOR/Iran/](https://www.centcom.mil/CENTCOM-AOR/Iran/) its land grabber, prostitution cover up shit on both sides from what i saw
 <img alt="image" src="https://github.com/user-attachments/assets/f1ce020f-9a85-4958-9e94-61d32b6a8e36" />
+<img  alt="image" src="https://github.com/user-attachments/assets/95e17886-4e97-4bc3-b5b1-5b32c82ccce6" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/ec197b64-b312-497d-9735-03b59bfa69a2" />
+
 
 ![https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75](https://trumpcard.gov/_next/image?url=%2Fimg%2Foriginal-hero%2Ftc-card-hero-media.webp&w=640&q=75)
 Democratic senator says Pentagon denied him access to US base in Qatar ‘to hide the costs’ of Iran war
-[thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/) /// [@Deptofwar thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/](https://thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/)
+[thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/) /// [@Deptofwar thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/](https://thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/) /// `other Articles` -  [CENTCOM Maintains Strict Enforcement of U.S. Blockade Against Iran centcom.mil](https://www.centcom.mil/MEDIA/PUBLIC-RELEASES/Article/4619553/centcom-maintains-strict-enforcement-of-us-blockade-against-iran/)
 <img  alt="image" src="https://github.com/user-attachments/assets/6ee3f6c8-d7a7-41a0-9cca-6b83fb2b290a" />
 ![https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png?w=2000&ssl=1](https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png)
 
@@ -18,6 +22,14 @@ Democratic senator says Pentagon denied him access to US base in Qatar ‘to hid
 <img alt="image" src="https://github.com/user-attachments/assets/3dd5bb60-5aea-4f75-9471-f374c374afc7" />
 
 <img  alt="snapshot-2026-09-25" src="https://github.com/user-attachments/assets/6791f411-1109-4965-aa97-9fcd63c8099e" />
+
+
+## Black Madonna 
+[@blackgirlscode en.wikipedia.org/wiki/Black_Madonna](https://en.wikipedia.org/wiki/Black_Madonna)
+![https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled](https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled)
+![https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail) 
+
+[almuslih.org/wp-content/uploads/2024/10/Reynolds-G-`The-Quran-and-the-Bible-Text-and-Commentary`](https://almuslih.org/wp-content/uploads/2024/10/Reynolds-G-The-Quran-and-the-Bible-Text-and-Commentary.pdf)
 
 ## Hurricane Polo
 [Biggest Hurricane Polo waves expected to hit today @nbcnews](https://youtu.be/7UxTnkKRupM?si=m4AdK8rHmlxMkDAg)
@@ -547,7 +559,7 @@ Isa feeding his disciples with food from heaven, 1580 Persian manuscript.
 <img  alt="image" src="https://github.com/user-attachments/assets/15878e57-c3be-4006-9c05-cc84d41d4d04" />
 
 <img alt="image" src="https://github.com/user-attachments/assets/b64e397b-83df-48b3-9424-fe1ab4cf83ae" />
-
+<img   alt="image" src="https://github.com/user-attachments/assets/ed63bb0b-45a5-4ead-8ac6-a16cd664ad64" />
 
 [ @cityoflosangeles github.com/rashardikelly](https://github.com/rashardikelly)
 
