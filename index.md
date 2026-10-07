@@ -6,7 +6,7 @@ mathjax: true
 
 
 Democratic senator says Pentagon denied him access to US base in Qatar ‘to hide the costs’ of Iran war
-[thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/)
+[thehill.com/author/`ellen-mitchell`/](https://thehill.com/author/ellen-mitchell/) /// [@Deptofwar thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/](https://thehill.com/policy/defense/6132165-murphy-qatar-iran-war-pentagon/)
 <img  alt="image" src="https://github.com/user-attachments/assets/6ee3f6c8-d7a7-41a0-9cca-6b83fb2b290a" />
 ![https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png?w=2000&ssl=1](https://i0.wp.com/thehill.com/wp-content/uploads/sites/2/2022/03/ellenmitchell.png)
 
