@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-
+🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM)
 
 # PHoenix
 @nasa so the landers having solar panels and going dead, what's up with that ? [Mission Assurance Disciplines
