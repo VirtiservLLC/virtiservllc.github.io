@@ -5,7 +5,12 @@ mathjax: true
 
 🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM)
 
+### @NASA’s SpaceX Crew-12 Dragon Splashes Down at 11:34 a.m. EDT
+[🎉🎉@Cityoflosangeles @Stateofcalifornia @Saccounty @cityofsantamonica @LA-County-isd @LAcountyDPH🎉🎉](https://www.nasa.gov/blogs/spacestation/2026/10/08/nasas-spacex-crew-12-dragon-splashes-down-at-1134-a-m-edt/)
 
+[@nasa-pds @nasa-jpl @deptofwar nasa.gov/blogs/spacestation/2026/10/08/nasas-spacex-crew-12-dragon-splashes-down-at-1134-a-m-edt/](https://www.nasa.gov/blogs/spacestation/2026/10/08/nasas-spacex-crew-12-dragon-splashes-down-at-1134-a-m-edt/) // [NASA’s SpaceX Crew-12: SpaceX Dragon Completes `Deorbit` Burn @Blackgirlscode `TechJargon`](https://www.nasa.gov/blogs/commercialcrew/2026/10/08/nasas-spacex-crew-12-spacex-dragon-completes-deorbit-burn/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6007e830-c23d-4b53-95d3-0e8bdf230365" />
 
 ## NASA’s SpaceX Crew‑12 Splashes Down,
 _Sets Briefing to Discuss Mission_ 
