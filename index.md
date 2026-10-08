@@ -10,6 +10,9 @@ mathjax: true
 
 ---
 
+
+<img  alt="@la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles" src="https://github.com/user-attachments/assets/1603ba19-f14c-4938-afb9-5146b362d83a" />
+
 [/artemis2/artemis2_crew_camera/artemis2_crew_camera/browse/fd02/art002e000189_nkd5015_prc_v01.png](https://pds-imaging.jpl.nasa.gov/tools/atlas/archive-explorer?mission=artemis2&bundle=artemis2_crew_camera&pds=4&uri=atlas:pds4:artemis2:artemis2:/artemis2_crew_camera/browse/fd02/art002e000189_nkd5015_prc_v01.png-) 
 
 <img  alt="@la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01" src="https://github.com/user-attachments/assets/89d25db6-be29-44d7-b575-305e617cef7b" />
