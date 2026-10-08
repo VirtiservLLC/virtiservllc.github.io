@@ -9,7 +9,7 @@ mathjax: true
 
 ## NASA’s SpaceX Crew‑12 Splashes Down,
 _Sets Briefing to Discuss Mission_ 
-The SpaceX Crew Dragon Freedom spacecraft is seen as it lands with NASA astronauts Jessica Meir, Jack Hathaway, ESA (European Space Agency) astronaut Sophie Adenot, and Roscosmos cosmonaut Andrey Fedyaev aboard in the Pacific Ocean off the coast of Los Angeles on Oct. 8, 2026.
+The SpaceX Crew Dragon Freedom spacecraft is seen as it lands with NASA astronauts Jessica Meir, Jack Hathaway, @ESA (European Space Agency) astronaut Sophie Adenot, and Roscosmos cosmonaut Andrey Fedyaev aboard in the Pacific Ocean off the coast of Los Angeles on Oct. 8, 2026.
 Credit: NASA/Keegan Barber @nasa-jpl I completey flaked on this one . . . sorry - [rashard @emit-sds hi](https://rashardikelly.github.io/)
 [@CityOfLosAngeles 🎉🎉Congrats Mayor Karen & BOardOfSupervisors 🎉🎉@La-County-isd](https://www.nasa.gov/news-release/nasas-spacex-crew-12-splashes-down-sets-briefing-to-discuss-mission/)
 ![https://www.nasa.gov/wp-content/uploads/2026/10/crew12splashdown1.jpg](https://www.nasa.gov/wp-content/uploads/2026/10/crew12splashdown1.jpg)
