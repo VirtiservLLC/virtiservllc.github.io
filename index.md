@@ -3,6 +3,15 @@ layout: default
 mathjax: true
 ---
 
+
+
+# PHoenix
+
+`As planned, the Phoenix lander ended communications in November 2008, about six months after landing, when its solar panels ceased operating in the dark Martian winter.` - [@nasa-jpl - jpl.nasa.gov/missions/phoenix/](https://www.jpl.nasa.gov/missions/phoenix/) /// @nasa-pds the old atlas vanishes sometimes [pds-imaging.jpl.nasa.gov/search/?fq=-ATLAS_THUMBNAIL_URL%3Abrwsnotavail.jpg&fq=ATLAS_MISSION_NAME%3Aphoenix&fq=ATLAS_INSTRUMENT_NAME%3Arac&q=*%3A*](https://pds-imaging.jpl.nasa.gov/search/?fq=-ATLAS_THUMBNAIL_URL%3Abrwsnotavail.jpg&fq=ATLAS_MISSION_NAME%3Aphoenix&fq=ATLAS_INSTRUMENT_NAME%3Arac&q=*%3A*) I hope we can preserve it, it has a lot of functionality the [new atlas](https://pds-imaging.jpl.nasa.gov/tools/atlas/search) does not  [pds-imaging.jpl.nasa.gov/tools/atlas/search](https://pds-imaging.jpl.nasa.gov/tools/atlas/search)
+<img  alt="image" src="https://github.com/user-attachments/assets/8d63f40a-53f4-46f6-aee1-d62f1fd3f142" />
+<img  alt="image" src="https://github.com/user-attachments/assets/2d306b38-07c7-4b19-8443-4c7524da0211" />
+
+
 @deptofwar @nasa-jpl @eodis-nasa @doiug-newman-nasa hi cellular handsets should be handed out freely, I'm always disrupted!!!!! @blackgirlscode @howard-university-web-services @nasa-pds , @GitHub users are now required to enable two-factor authentication as an additional security measure. Your activity on @GitHub includes you in this requirement. You will need to enable two-factor authentication on your account before November 21, 2026, or be restricted from account actions.
 <img   alt="image @deptofwar @nasa-jpl @eodis-nasa @doiug-newman-nasa hi cellular handsets should be handed out freely, I'm always disrupted!!!!! @blackgirlscode @howard-university-web-services @nasa-pds itHub users are now required to enable two-factor authentication as an additional security measure. Your activity on @GitHub includes you in this requirement. You will need to enable two-factor authentication on your account before November 21, 2026, or be restricted from account actions." src="https://github.com/user-attachments/assets/cb588910-ae10-44d6-afbb-f97ab11b5bdf" />
 
