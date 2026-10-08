@@ -3,6 +3,9 @@ layout: default
 mathjax: true
 ---
 
+@deptofwar @nasa-jpl @eodis-nasa @doiug-newman-nasa hi cellular handsets should be handed out freely, I'm always disrupted!!!!! @blackgirlscode @howard-university-web-services @nasa-pds , @GitHub users are now required to enable two-factor authentication as an additional security measure. Your activity on @GitHub includes you in this requirement. You will need to enable two-factor authentication on your account before November 21, 2026, or be restricted from account actions.
+<img   alt="image @deptofwar @nasa-jpl @eodis-nasa @doiug-newman-nasa hi cellular handsets should be handed out freely, I'm always disrupted!!!!! @blackgirlscode @howard-university-web-services @nasa-pds itHub users are now required to enable two-factor authentication as an additional security measure. Your activity on @GitHub includes you in this requirement. You will need to enable two-factor authentication on your account before November 21, 2026, or be restricted from account actions." src="https://github.com/user-attachments/assets/cb588910-ae10-44d6-afbb-f97ab11b5bdf" />
+
 <img  alt="images" src="https://github.com/user-attachments/assets/01c85920-1519-4f53-a203-9c1e2e91f454" />
 
 #  Explore JPL on October 10–11, 2026
