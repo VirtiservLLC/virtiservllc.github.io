@@ -10,6 +10,9 @@ mathjax: true
 
 [@nasa-pds @nasa-jpl @deptofwar nasa.gov/blogs/spacestation/2026/10/08/nasas-spacex-crew-12-dragon-splashes-down-at-1134-a-m-edt/](https://www.nasa.gov/blogs/spacestation/2026/10/08/nasas-spacex-crew-12-dragon-splashes-down-at-1134-a-m-edt/) // [NASA’s SpaceX Crew-12: SpaceX Dragon Completes `Deorbit` Burn @Blackgirlscode `TechJargon`](https://www.nasa.gov/blogs/commercialcrew/2026/10/08/nasas-spacex-crew-12-spacex-dragon-completes-deorbit-burn/)
 
+
+![https://www.nasa.gov/wp-content/uploads/2026/10/splashdown.png?resize=768,469](https://www.nasa.gov/wp-content/uploads/2026/10/splashdown.png?resize=768,469) 
+
 <img  alt="image" src="https://github.com/user-attachments/assets/6007e830-c23d-4b53-95d3-0e8bdf230365" />
 
 ## NASA’s SpaceX Crew‑12 Splashes Down,
