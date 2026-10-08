@@ -4,8 +4,13 @@ mathjax: true
 ---
 
 
+@howard-university-web-services [@blackgirlscode](https://copy.sh/v86/?profile=dsl) I saw someone that looked like latrice, I announced who I was, and that I'm still doing the same thing! Im working, l8tr! @nasa-jpl the embedded wipeout game is a ps1 emulated via [MAME](https://github.com/mamedev/mame), [@nasa-pds](https://copy.sh/v86/?profile=freebsd) [@WebAssembly](https://github.com/webassembly) is a framework that lets you do those things [@CityOfLosAngeles](https://copy.sh/v86/?profile=windowsnt4) you guys have a lot of old software to run
 
+<div class="tupperware">
+<img   alt="image" src="https://github.com/user-attachments/assets/cefc651e-5c9d-4e3c-b1ba-7892f6c49488" />
 
+<img  alt="Screenshot 2026-10-08 10 32 04 AM" src="https://github.com/user-attachments/assets/72b74f45-e5a9-4deb-ad59-92b7cdfe743f" />
+</div>
 
 ### World Space Week 2026: Herbig-Haro 46/47
 [`doodles`.google/doodle/space-week-2026-day-3/](https://doodles.google/doodle/space-week-2026-day-3/)
