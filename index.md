@@ -10,16 +10,16 @@ mathjax: true
 
 ---
 
-<img src="https://64.media.tumblr.com/648cb4f6256a1817e35df27f49e941cd/b2c55ccd2eebe6da-b1/s1280x1920/165cec0cebf2e360961f00eb034f42a8fceb0890.pnj"/><img width="1054" height="1865" alt="image" src="https://github.com/user-attachments/assets/6c649ae5-c9e4-498d-990c-8ac34d339e28" />
-
-<img alt=" @la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles tumblr_c37e21b92073efeab9aff480254a3b5c_785bbc5c_2048" src="https://github.com/user-attachments/assets/11ea6013-37df-434a-9b18-4a81e14ad976" />
-
-
-<img  alt="@la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles" src="https://github.com/user-attachments/assets/1603ba19-f14c-4938-afb9-5146b362d83a" />
+## ARTEMiS ViDEO
+@howard-university-we-services `Trice` @Blackgirlscode hi everyone [/artemis2/artemis2_orion_camera/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4](/artemis2/artemis2_orion_camera/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4)
+[pds-imaging.jpl.nasa.gov/tools/atlas/archive-explorer?mission=artemis2&bundle=artemis2_orion_camera&pds=4&uri=atlas:pds4:artemis2:artemis2:/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4-](https://pds-imaging.jpl.nasa.gov/tools/atlas/archive-explorer?mission=artemis2&bundle=artemis2_orion_camera&pds=4&uri=atlas:pds4:artemis2:artemis2:/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4-)
+[<video controls loading="lazy" poster="https://github.com/user-attachments/assets/3571e896-ada9-4fab-bd09-1d288892c6a5" src="https://pds-imaging.jpl.nasa.gov/api/data/atlas:pds4:artemis2:artemis2:/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4::0" />](https://pds-imaging.jpl.nasa.gov/api/data/atlas:pds4:artemis2:artemis2:/artemis2_orion_camera/data_video/fd06/channel1/art002m1010970138_saw3_raw_v01.mp4::0)
 
 [/artemis2/artemis2_crew_camera/artemis2_crew_camera/browse/fd02/art002e000189_nkd5015_prc_v01.png](https://pds-imaging.jpl.nasa.gov/tools/atlas/archive-explorer?mission=artemis2&bundle=artemis2_crew_camera&pds=4&uri=atlas:pds4:artemis2:artemis2:/artemis2_crew_camera/browse/fd02/art002e000189_nkd5015_prc_v01.png-) 
 
 <img  alt="@la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01" src="https://github.com/user-attachments/assets/89d25db6-be29-44d7-b575-305e617cef7b" />
+
+<img  alt="@la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles" src="https://github.com/user-attachments/assets/1603ba19-f14c-4938-afb9-5146b362d83a" />
 
 [@nasa-pds https://pds-imaging.jpl.nasa.gov/search/](https://pds-imaging.jpl.nasa.gov/search/) is lagging from central
 
@@ -546,6 +546,12 @@ _FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber
 <img alt="image @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
 [@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
 _FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles " src="https://github.com/user-attachments/assets/62e61ae5-f785-4c94-97c6-f05834b5f37b" />
+
+<img src="https://64.media.tumblr.com/648cb4f6256a1817e35df27f49e941cd/b2c55ccd2eebe6da-b1/s1280x1920/165cec0cebf2e360961f00eb034f42a8fceb0890.pnj"/><img width="1054" height="1865" alt="image" src="https://github.com/user-attachments/assets/6c649ae5-c9e4-498d-990c-8ac34d339e28" />
+
+<img alt=" @la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles tumblr_c37e21b92073efeab9aff480254a3b5c_785bbc5c_2048" src="https://github.com/user-attachments/assets/11ea6013-37df-434a-9b18-4a81e14ad976" />
+
+
 
 <img  alt="image @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
 [@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
