@@ -7,13 +7,16 @@ mathjax: true
 
 ---
 
+@eodis-nasa @cityoflosangeles Mayor Karen Im posting from  central, @nasa-pds my findings on insight are here for the most part :octocat: [:octocat:github.com/virtiserv/virtiserv.github.io/commit/7b51bc4c547d7ee9afe0ceadde6670999445a0f0 :octocat:](https://github.com/virtiserv/virtiserv.github.io/commit/7b51bc4c547d7ee9afe0ceadde6670999445a0f0) /// [@BLACKGiRLSCODE @HOWARD-UNiVERSiTY-WEB_SERViCES:Complete list of github markdown emoji markup](https://gist.github.com/rxaviers/7360908)
+<img alt="image @eodis-nasa @cityoflosangeles Mayor Karen Im posting from  central, @nasa-pds my findings on insight are here for the most part https://github.com/virtiserv/virtiserv.github.io/commit/7b51bc4c547d7ee9afe0ceadde6670999445a0f0" src="https://github.com/user-attachments/assets/5d5c138d-ee42-4eca-9fa1-1199d12ea32f" />
 
-<iframe src="https://archive.org/embed/DJ_Relle_Presents_-_Omeretta_The_Great_Vs_Big_Latto-2022" width="500" height="30" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+<iframe src="https://archive.org/embed/DJ_Relle_Presents_-_Omeretta_The_Great_Vs_Big_Latto-2022" width="500" height="30" margin="0" padding="0" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 <iframe src="https://archive.org/embed/DJ_Drama_and_Kash_Doll_-_Back_On_Dexter-2023" width="500" height="30" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 ## Fire and Ice
 is a 1983 American animated epic dark fantasy adventure film directed by Ralph Bakshi. The film, a collaboration between Bakshi and [Frank Frazetta](https://www.frazettagirls.com/pages/gallery), was distributed by 20th Century Fox - [FANDOM](https://20thcenturystudios.fandom.com/wiki/Fire_and_Ice_(1983_film)) @foxnews if [20th Century Fox @disney](https://disney.github.io/) is a distributor @nasa-jpl i need to have the production company for the [martian clear me @whitehouse @deptofwar, @foratlanta](https://archive.org/download/the.-martian.-2015.-extended.-1080p.-brrip.x-264.-aac-etrg/The.Martian.2015.EXTENDED.1080p.BRRip.x264.AAC-ETRG.mp4) , here is an @iptv issue on copyrighting to look at @blckgirlscode [DMCA takedown notices from 20th Century Studio Inc.
- #37989](https://github.com/iptv-org/iptv/issues/37989)
+ #37989](https://github.com/iptv-org/iptv/issues/37989) [@BLACKGiRLSCODE @HOWARD-UNiVERSiTY-WEB_SERViCES:Complete list of github markdown emoji markup](https://gist.github.com/rxaviers/7360908)
 
 [imdb](https://www.imdb.com/title/tt0085542/)
 
