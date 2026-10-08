@@ -3,6 +3,10 @@ layout: default
 mathjax: true
 ---
 
+<img alt="image" src="https://github.com/user-attachments/assets/cb80e206-9de9-47c0-af80-e23f2e478f51" />
+
+<img   alt="image @howard-university-web-services [@blackgirlscode](https://copy.sh/v86/?profile=dsl) I saw someone that looked like latrice, I announced who I was, and that I'm still doing the same thing! Im working, l8tr! @nasa-jpl the embedded wipeout game is a ps1 emulated via [MAME](https://github.com/mamedev/mame), [@nasa-pds](https://copy.sh/v86/?profile=freebsd) [@WebAssembly](https://github.com/webassembly) is a framework that lets you do those things [@CityOfLosAngeles](https://copy.sh/v86/?profile=windowsnt4) you guys have a lot of old software to run" src="https://github.com/user-attachments/assets/966a232d-c352-47e9-9e3b-c32e0a425940" />
+
 
 @howard-university-web-services [@blackgirlscode](https://copy.sh/v86/?profile=dsl) I saw someone that looked like latrice, I announced who I was, and that I'm still doing the same thing! Im working, l8tr! @nasa-jpl the embedded wipeout game is a ps1 emulated via [MAME](https://github.com/mamedev/mame), [@nasa-pds](https://copy.sh/v86/?profile=freebsd) [@WebAssembly](https://github.com/webassembly) is a framework that lets you do those things [@CityOfLosAngeles](https://copy.sh/v86/?profile=windowsnt4) you guys have a lot of old software to run
 
