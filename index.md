@@ -3,6 +3,8 @@ layout: default
 mathjax: true
 ---
 
+<img  alt="images" src="https://github.com/user-attachments/assets/01c85920-1519-4f53-a203-9c1e2e91f454" />
+
 #  Explore JPL on October 10–11, 2026
 @CityOfLosAngeles please share with all the districts so we get as many ocals in as we can @CityOFSantAmonica @saccounty
 [jpl.nasa.gov/explore-jpl/](https://www.jpl.nasa.gov/explore-jpl/)
