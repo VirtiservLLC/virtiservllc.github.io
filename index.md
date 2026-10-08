@@ -10,6 +10,7 @@ mathjax: true
 
 ---
 
+<img src="https://64.media.tumblr.com/648cb4f6256a1817e35df27f49e941cd/b2c55ccd2eebe6da-b1/s1280x1920/165cec0cebf2e360961f00eb034f42a8fceb0890.pnj"/><img width="1054" height="1865" alt="image" src="https://github.com/user-attachments/assets/6c649ae5-c9e4-498d-990c-8ac34d339e28" />
 
 <img alt=" @la-county-isd hollyjmitchell @cityoflosangeles @nasa-jpl @blackgirlscode art002e000189_nkd5015_prc_v01 @Cityoflosangeles tumblr_c37e21b92073efeab9aff480254a3b5c_785bbc5c_2048" src="https://github.com/user-attachments/assets/11ea6013-37df-434a-9b18-4a81e14ad976" />
 
