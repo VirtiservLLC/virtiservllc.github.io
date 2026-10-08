@@ -5,6 +5,15 @@ mathjax: true
 
 🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM)
 
+
+
+## NASA’s SpaceX Crew‑12 Splashes Down,
+_Sets Briefing to Discuss Mission_ 
+The SpaceX Crew Dragon Freedom spacecraft is seen as it lands with NASA astronauts Jessica Meir, Jack Hathaway, ESA (European Space Agency) astronaut Sophie Adenot, and Roscosmos cosmonaut Andrey Fedyaev aboard in the Pacific Ocean off the coast of Los Angeles on Oct. 8, 2026.
+Credit: NASA/Keegan Barber @nasa-jpl I completey flaked on this one . . . sorry - [rashard @emit-sds hi](https://rashardikelly.github.io/)
+[@CityOfLosAngeles Congrats Mayor Karen &BOardOfSupervisors @La-County-isd](https://www.nasa.gov/news-release/nasas-spacex-crew-12-splashes-down-sets-briefing-to-discuss-mission/)
+![https://www.nasa.gov/wp-content/uploads/2026/10/crew12splashdown1.jpg](https://www.nasa.gov/wp-content/uploads/2026/10/crew12splashdown1.jpg)
+
 # PHoenix
 @nasa so the landers having solar panels and going dead, what's up with that ? [Mission Assurance Disciplines
 Dead Bus Recovery](https://mab.aerospace.org/lvl2/2_3_17_2.3.17-2) ... from another mission `The ACU successfully entered dead bus recovery mode and exited when the bus voltage was back in range` [Advanced Stirling Convertor Control Unit Testing at ... ntrs.nasa.gov/api/ @deptofwar citations/20170007988](https://ntrs.nasa.gov/api/citations/20170007988/downloads/20170007988.pdf)
