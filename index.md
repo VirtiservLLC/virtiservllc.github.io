@@ -10,11 +10,13 @@ mathjax: true
 
 ---
 
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A217049673&color=%2360a0ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/user630627017" title="user630627017" target="_blank" style="color: #cccccc; text-decoration: none;">user630627017</a> · <a href="https://soundcloud.com/user630627017/cdv2815" title="Wipeout 2097 (ワイプアウト―2097): The Soundtrack (30 September 1996) [CDV2815, LC3098]" target="_blank" style="color: #cccccc; text-decoration: none;">Wipeout 2097 (ワイプアウト―2097): The Soundtrack (30 September 1996) [CDV2815, LC3098]</a></div>
 
 D000M1221_704934741RADLF0000_0817M2_0PCT `png`
 
 <img  alt="D000M1221_704934741RADLF0000_0817M2_0PCT" src="https://github.com/user-attachments/assets/519d8aa2-e818-42dc-9e93-27fe686bd930" />
 
+D000M1221_704934741RADLF0000_0817M2_0PCT `jpg`
 [D000M1221_704934741RADLF0000_0817M2_0PCT  @DeptOfWar @USNAVY an.rsl.wustl.edu/su/Bw98WqZc](https://an.rsl.wustl.edu/su/Bw98WqZc)
 
 <img   alt="D000M1221_704934741RADLF0000_0817M2_2PCT" src="https://github.com/user-attachments/assets/90b2c555-334b-40e6-b5b5-835a96601adc" />
