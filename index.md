@@ -6,6 +6,8 @@ mathjax: true
 
 
 # PHoenix
+@nasa so the landers having solar panels and going dead, what's up with that ? [Mission Assurance Disciplines
+Dead Bus Recovery](https://mab.aerospace.org/lvl2/2_3_17_2.3.17-2) ... from another mission `The ACU successfully entered dead bus recovery mode and exited when the bus voltage was back in range` [Advanced Stirling Convertor Control Unit Testing at ... ntrs.nasa.gov/api/ @deptofwar citations/20170007988](https://ntrs.nasa.gov/api/citations/20170007988/downloads/20170007988.pdf)
 
 `As planned, the Phoenix lander ended communications in November 2008, about six months after landing, when its solar panels ceased operating in the dark Martian winter.` - [@nasa-jpl - jpl.nasa.gov/missions/phoenix/](https://www.jpl.nasa.gov/missions/phoenix/) /// @nasa-pds the old atlas vanishes sometimes [pds-imaging.jpl.nasa.gov/search/?fq=-ATLAS_THUMBNAIL_URL%3Abrwsnotavail.jpg&fq=ATLAS_MISSION_NAME%3Aphoenix&fq=ATLAS_INSTRUMENT_NAME%3Arac&q=*%3A*](https://pds-imaging.jpl.nasa.gov/search/?fq=-ATLAS_THUMBNAIL_URL%3Abrwsnotavail.jpg&fq=ATLAS_MISSION_NAME%3Aphoenix&fq=ATLAS_INSTRUMENT_NAME%3Arac&q=*%3A*) I hope we can preserve it, it has a lot of functionality the [new atlas](https://pds-imaging.jpl.nasa.gov/tools/atlas/search) does not  [pds-imaging.jpl.nasa.gov/tools/atlas/search](https://pds-imaging.jpl.nasa.gov/tools/atlas/search)
 <img  alt="image" src="https://github.com/user-attachments/assets/8d63f40a-53f4-46f6-aee1-d62f1fd3f142" />
