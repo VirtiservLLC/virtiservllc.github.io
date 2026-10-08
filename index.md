@@ -2,6 +2,20 @@
 layout: default
 mathjax: true
 ---
+
+
+
+
+
+### World Space Week 2026: Herbig-Haro 46/47
+[`doodles`.google/doodle/space-week-2026-day-3/](https://doodles.google/doodle/space-week-2026-day-3/)
+![https://www.google.com/logos/doodles/2026/space-week-2026-day-3-6753651837111377-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-3-6753651837111377-2xa.gif) 
+
+### World Space Week 2026: The Carina Nebula
+[`doodles`.google/doodle/space-week-2026-day-2/](https://doodles.google/doodle/space-week-2026-day-2/)
+![https://www.google.com/logos/doodles/2026/space-week-2026-day-2-6753651837111376.2-2xa.gif](https://www.google.com/logos/doodles/2026/space-week-2026-day-2-6753651837111376.2-2xa.gif) 
+
+
 🎶 [Ridge Racer (PSX) - Feeling Over](https://youtu.be/R3pMCxgn1Cg?list=RDR3pMCxgn1Cg&t=53) // [Ridge Racer (PSX) - Rhythm Shift ](https://youtu.be/7KU_JJ_JAEs?list=RDR3pMCxgn1Cg&t=20)
 
 ---
