@@ -7,7 +7,7 @@ mathjax: true
 
 
 [@CityOfLosAngeles Karen Bass](https://mayor.lacity.gov/) I hope you got to [Hawthorne](https://www.facebook.com/SpaceXLite/) to see what Congressional paperwork the astro/Cosmo:naughts need. I checked [in](https://space-offshore.com/wp-content/uploads/2020/04/Dj3KurJUwAEQwra-1024x683.jpg) at [HomeLandSecurity @dhs-gov](https://www.ice.gov/field-office/los-angeles-field-office) downtown and announced we had a splashdown with 2 Russians [`WATCH` - @ESA  @nasa-jpl @podaac x.com/i/broadcasts/1DGLdZyZZpbGm](https://x.com/i/broadcasts/1DGLdZyZZpbGm)
-![https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu](https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu) /./ [SpaceX Dragon Recovery Program space-offshore.com/dragon-recovery/](https://space-offshore.com/dragon-recovery/)
+![https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu](https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu) /./ [SpaceX Dragon Recovery Program space-offshore.com/dragon-recovery/](https://space-offshore.com/dragon-recovery/) // [Astronauts splash down off Los Angeles coast after nearly 8 months in space @ktla @nbcnews](https://ktla.com/news/local-news/nasa-spacex-crew-12-splashdown-los-angeles-coast/) 
 <img   alt="838844866_3619513218196123_8904291407734266964_n" src="https://github.com/user-attachments/assets/7adfb4c3-ec81-4de8-8a7a-2c30f88becb1" />
 
 [spacex.com/launches/crew12](https://www.spacex.com/launches/crew12)
