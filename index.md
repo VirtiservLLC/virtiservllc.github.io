@@ -5,7 +5,7 @@ mathjax: true
 
 <img  alt="image" src="https://github.com/user-attachments/assets/2fd7b184-db57-4a00-a80a-848cd0d9903a" />
 
-![https://chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1](https://chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1)
+[`THEME` - chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1](https://chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1)
 ![https://lh3.googleusercontent.com/jdSvIVV5diPputS6qblLGvJkUdySqoodhem9hAEdHir6btTQzL2P9HK_skYKLOkMXuBQf8L6ODW2riLugxUZgxqD2jA=s1280-w1280-h800](https://lh3.googleusercontent.com/jdSvIVV5diPputS6qblLGvJkUdySqoodhem9hAEdHir6btTQzL2P9HK_skYKLOkMXuBQf8L6ODW2riLugxUZgxqD2jA=s1280-w1280-h800) 
 
 
