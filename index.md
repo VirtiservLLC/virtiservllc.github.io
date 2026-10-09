@@ -13,6 +13,9 @@ mathjax: true
 <img   alt="image" src="https://github.com/user-attachments/assets/d485b2a6-052a-4de3-9587-c738924e5ca6" />
 
 @ESA hi idk where the cosmonaughts are but you should check with out local congress @LaCityClerk @Repkarenbass @ushomelandsecurity to make sure all their reentry paperwork is complete - rashard @NASAJPL hi @DHS-GOV
+
+![https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
 Welcome Crew-12 back to Earth with us! https://www.youtube.com/watch?v=x6p9Ri0DlNE @deptofwar @CBSLA 
 
 NASA astronauts Jessica Meir and Jack Hathaway, ESA (European Space Agency) astronaut Sophie Adenot, and Roscosmos cosmonaut Andrey Fedyaev are scheduled to splash down off the coast of California at 11:34 a.m. EDT (1534 UTC) on Thursday, Oct. 8.
@@ -21,6 +24,8 @@ We'll have live coverage from re-entry to recovery. Crew-12 spent 235 days on th
 
 Learn more about what Crew-12 studied during their time in space: https://[go.nasa.gov/4z5jVl6](https://go.nasa.gov/4z5jVl6)
 Get the latest updates from the space station: https://www.[nasa.gov/blogs/spacestation](https://www.nasa.gov/blogs/spacestation/)/ @SupervisorLindseyP.Horvath @la-county-isd @CityOfLosanGeles @saccounty 
+
+![https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
 
 <img   alt="image " src="https://github.com/user-attachments/assets/423500ff-53f7-4456-af5f-17fd47db329a" />
 
