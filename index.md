@@ -8,7 +8,7 @@ mathjax: true
 ---
 
 # Inside The Russian Lab At The Center Of Plague Fears
->[LanaJHArris](https://www.google.com/search?sca_esv=6f2d283ff63654aa&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvcOdSYYwyHTkIOeH-2vHAwGsriiQ:1791513398026&q=lana+j+harris&tbm=nws&source=lnms&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832QGGMdFXpDyzkQgEdtB8w9y513h_dJNevWM0LJgfK9j10QT4427mlOcJZp94RFv3ZlcmSaWMK94EzlVkt6GcuJz-V39aB5tlb-s2hwEgo8qiKbL3JGj6v_Epl4coXUvlTHMklBowN8mBkdB0BLbPO1cz9TBV5kQQaKBkdb3hXrxCI6Ce1A&sa=X&sqi=2&ved=2ahUKEwjFkMy986uXAxWQKEQIHZIOPJsQ0pQJegQIGxAB&biw=1414&bih=945&dpr=1)
+>[LanaJHArris @dhs-gov @commercegov](https://www.google.com/search?sca_esv=6f2d283ff63654aa&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvcOdSYYwyHTkIOeH-2vHAwGsriiQ:1791513398026&q=lana+j+harris&tbm=nws&source=lnms&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832QGGMdFXpDyzkQgEdtB8w9y513h_dJNevWM0LJgfK9j10QT4427mlOcJZp94RFv3ZlcmSaWMK94EzlVkt6GcuJz-V39aB5tlb-s2hwEgo8qiKbL3JGj6v_Epl4coXUvlTHMklBowN8mBkdB0BLbPO1cz9TBV5kQQaKBkdb3hXrxCI6Ce1A&sa=X&sqi=2&ved=2ahUKEwjFkMy986uXAxWQKEQIHZIOPJsQ0pQJegQIGxAB&biw=1414&bih=945&dpr=1)
 [`WATCH` - youtube.com/watch?v=XnFZKjmZhWY](https://www.youtube.com/watch?v=XnFZKjmZhWY)
 <img   alt="image" src="https://github.com/user-attachments/assets/d485b2a6-052a-4de3-9587-c738924e5ca6" />
 
