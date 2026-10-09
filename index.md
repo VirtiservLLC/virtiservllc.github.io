@@ -3,8 +3,12 @@ layout: default
 mathjax: true
 ---
 
-🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8) // [Bonobo - Kerala ](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c)
+🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8) // [Bonobo - Kerala ](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c) // [The Awakening · Ahmad Jamal ](https://youtu.be/L34b0ut8Loc?si=TkMybJcVNhqsHqCJ)
 
+---
+
+
+<img   alt="image @NASA-JPL i dont want to talk to my friend on @HOT97 but i want to say that the electoshock patterns i get are similar to whats depicted in this vid @HOWARDUNiVERSiTY a mention is a url so if i mention her i know i mentioning her and there are connectivity consequences from trackers that might be disabling her . . . i know she was injured really bad when she came itno my life @nasa-pds @repkarenbass @SupervisorHollyJMitchell @cityoflosangeles" src="https://github.com/user-attachments/assets/99525c36-c8f1-494b-8e36-925cf4a838de" />
 
 [🎼Watch - BonoBo Kerala](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c&t=45)
 @NASAJPL i dont want to talk to my friend on @HOT97 but i want to say that the electoshock patterns i get are similar to whats depicted in this vid @HOWARDUNiVERSiTY a mention is a url so if i mention her i know i mentioning her and there are connectivity consequences from trackers taht might be disabling her . . . i know she was injured really bad when she came itno my life @nasa-pds @repkarenbass @SupervisorHollyJMitchell @cityoflosangeles
