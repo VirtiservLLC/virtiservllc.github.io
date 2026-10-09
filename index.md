@@ -3,7 +3,7 @@ layout: default
 mathjax: true
 ---
 
-[`WATCH` - youtube.com/@hot97/videos](https://www.youtube.com/@hot97/videos)
+[`WATCH` - youtube.com/@hot97/videos @Nasa-JPL @eodis-nasa](https://www.youtube.com/@hot97/videos)
 <img   alt="image" src="https://github.com/user-attachments/assets/37efe02a-5bab-42d1-8c5b-70a61dfb6630" />
 
 <img  alt="image" src="https://github.com/user-attachments/assets/2fd7b184-db57-4a00-a80a-848cd0d9903a" />
