@@ -7,7 +7,7 @@ mathjax: true
 
 ---
 
-
+[@nasa-jpl @tesla H.R.2737 - ELON MUSK Act](https://www.congress.gov/bill/119th-congress/house-bill/2737)
 @ForAtlanta everyone did not hate [the martian - _congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1_](https://www.congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1)
 
 ```
@@ -19,7 +19,7 @@ engineer Bob Cenker, an RCA engineer. We launched an RCA communications
 satellite in the course of the mission.
 ```
 
-@Howard-university-web-services @blackgirlscode hi Lana @fbicyber @whitehouse I see rca all wrapped up in this, so idk what your mom was raising you on, so I'm just making amends I don't want you thinking I hate you bc I had hurt feelings one time . . . 
+@Howard-university-web-services @blackgirlscode hi Lana @fbicyber @whitehouse I see rca all wrapped up in this, so idk what your mom was raising you on, so I'm just making amends I don't want you thinking I hate you bc I had hurt feelings one time . . . I'll be real like the following article you guys talk about things without a full circle of communication and tbh, I just feel like yourf producer is waiting on that ckique and that's your fuck and I'm abandoned even psycologically... now if you get this @Whitehouse The President purchased all these bonds from @SpaceExplorationTechnologies and [we had 4 people fall into the sea from outer space off our @CityOfLosAngeles @CityOfSantamonica coast](https://youtu.be/nB6P5BxVrIo?si=V1cz1-zGafz3eX25) right after ? Why y'all so fucked up with the president ? @NBCNEWS @Cbs-NEWS-DATA @Disney @NetFlix [Trump purchased up to $5 million of SpaceX bonds days before major space order](https://www.wmtw.com/article/trump-spacex-bonds-days-before-major-space-order/74084295)
 - rashard
 [the martian - congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1](https://www.congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1)
  
