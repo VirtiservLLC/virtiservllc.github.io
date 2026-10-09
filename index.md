@@ -7,6 +7,13 @@ mathjax: true
 
 ---
 
+## HOT 97 News Live! 10/8/26
+[`WATCH` @Eodis-nasa she is growing in map making! youtube.com/watch?v=bCZRP31cIqE&t=1s](https://www.youtube.com/watch?v=bCZRP31cIqE&t=1s)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/76e5f114-a7f3-4951-9ddc-3f456749e24b" />
+Hi @Lanajharris @blackgirlscode hi Lana @fbicyber @whitehouse I see rca all wrapped up in this, so idk what your mom was raising you on, so I'm just making amends I don't want you thinking I hate you bc I had hurt feelings one time . . . I'll be real like the following article you guys talk about things without a full circle of communication and tbh, I just feel like yourf producer is waiting on that ckique and that's your fuck and I'm abandoned even psycologically... now if you get this @Whitehouse The President purchased all these bonds from @SpaceExplorationTechnologies and we had 4 people fall into the sea from outer space off our @CityOfLosAngeles @CityOfSantamonica coast right after ? Why y'all so fucked up with the president ? @NBCNEWS @Cbs-NEWS-DATA @Disney @NetFlix Trump purchased up to $5 million of SpaceX bonds days before major space order @repkarenbass 🎼Watch - BonoBo Kerala @NASAJPL i dont want to talk to my friend on @HOT97 but i want to say that the electoshock patterns i get are similar to whats depicted in this vid @HOWARDUNiVERSiTY a mention is a url so if i mention her i know i mentioning her and there are connectivity consequences from trackers taht might be disabling her . . . i know she was injured really bad when she came itno my life @nasa-pds @repkarenbass @SupervisorHollyJMitchell @cityoflosangeles
+<img  alt="image" src="https://github.com/user-attachments/assets/67caab3d-278b-40d5-afab-c5fc1b44d94a" />
+
 [@nasa-jpl @tesla H.R.2737 - ELON MUSK Act](https://www.congress.gov/bill/119th-congress/house-bill/2737)
 @ForAtlanta everyone did not hate [the martian - _congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1_](https://www.congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1)
 
