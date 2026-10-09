@@ -3,10 +3,16 @@ layout: default
 mathjax: true
 ---
 
-🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8)
+🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8) // [Bonobo - Kerala ](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c)
 
-[https://www.youtube.com/watch?v=3Z0kU428JSE](https://www.youtube.com/watch?v=3Z0kU428JSE)
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/4a1bb7f7-4a6b-46b6-8da9-830febff13fb" />
+
+[🎼Watch - BonoBo Kerala](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c&t=45)
+@NASAJPL i dont want to talk to my friend on @HOT97 but i want to say that the electoshock patterns i get are similar to whats depicted in this vid @HOWARDUNiVERSiTY a mention is a url so if i mention her i know i mentioning her and there are connectivity consequences from trackers taht might be disabling her . . . i know she was injured really bad when she came itno my life @nasa-pds @repkarenbass @SupervisorHollyJMitchell @cityoflosangeles
+<img   alt="image" src="https://github.com/user-attachments/assets/0339cb19-ccca-410c-8d6f-b167cba1827f" />
+
+
+[youtube.com/watch?v=3Z0kU428JSE](https://www.youtube.com/watch?v=3Z0kU428JSE)
+<img   alt="image" src="https://github.com/user-attachments/assets/4a1bb7f7-4a6b-46b6-8da9-830febff13fb" />
 
 [`WATCH` - @ESA  @nasa-jpl @podaac x.com/i/broadcasts/1DGLdZyZZpbGm](https://x.com/i/broadcasts/1DGLdZyZZpbGm)
 [@CityOfLosAngeles Karen Bass](https://mayor.lacity.gov/) I hope you got to [Hawthorne](https://www.facebook.com/SpaceXLite/) to see what Congressional paperwork the astro/Cosmo:naughts need. I checked [in](https://space-offshore.com/wp-content/uploads/2020/04/Dj3KurJUwAEQwra-1024x683.jpg) at [HomeLandSecurity @dhs-gov](https://www.ice.gov/field-office/los-angeles-field-office) downtown and announced we had a splashdown with 2 Russians [`WATCH` - @ESA  @nasa-jpl @podaac x.com/i/broadcasts/1DGLdZyZZpbGm](https://x.com/i/broadcasts/1DGLdZyZZpbGm)
