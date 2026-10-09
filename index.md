@@ -14,6 +14,9 @@ mathjax: true
 
 @ESA hi idk where the cosmonaughts are but you should check with out local congress @LaCityClerk @Repkarenbass @ushomelandsecurity to make sure all their reentry paperwork is complete - rashard @NASAJPL hi @DHS-GOV
 
+### NASA’s [InSight Records Monster Quake](https://www.iris.edu/hq/sis/insight) on Mars [@nasa-jpl `READ`](https://www.nasa.gov/missions/insight/nasas-insight-records-monster-quake-on-mars/)
+![https://www.nasa.gov/wp-content/uploads/2022/05/pia25044-1-1041.jpg](https://www.nasa.gov/wp-content/uploads/2022/05/pia25044-1-1041.jpg) 
+
 ![https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/SWLTgJI0DMIKZG2NQAerJs_jg4hmwIhvJ3OLvfr9RnrrWr470T76gfW_8Ut4BVN298nu-LVz8g=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
 
 Welcome Crew-12 back to Earth with us! https://www.youtube.com/watch?v=x6p9Ri0DlNE @deptofwar @CBSLA 
