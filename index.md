@@ -7,6 +7,9 @@ mathjax: true
 
 --- 
 
+![@doug-newman-nasa some of our mailers are on @aws so, im hotlinking this for my municipal overseers to see i logged in today but i notised the image is hosted @amazon, id like to know more about how we run our informaion architechture in this era @deptofwar i have always had issuse with @nasa and the way they do things @forAtlanta @blackgirlscode https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg](https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg) 
+<img   alt="image @la-county-isd @cityoflosangeles @USGS @nasa-jpl @Stateofcalifornia @foratlanta " src="https://github.com/user-attachments/assets/ed70473c-4602-442f-85b6-5c29ec0a1894" />
+
 # The [Lana](https://www.instagram.com/lanajharris/?hl=en) Rundown [@Nasa-JPL @eodis-nasa @deptofwar]
 Why Diddy’s Prison Release Date Just Got Pushed Back
 [`WATCH` - https://www.youtube.com/watch?v=ug_jB28_dDQ](https://www.youtube.com/watch?v=ug_jB28_dDQ)
