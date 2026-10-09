@@ -8,6 +8,34 @@ mathjax: true
 ---
 
 
+@ForAtlanta everyone did not hate [the martian - _congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1_](https://www.congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1)
+
+```
+If you saw the Matt Damon 
+movie, ``The Martian,'' the author of the book had consulted with 
+Franklin about the technology that is referenced in the book as the 
+propulsion that sent that spacecraft to and from Mars. Another is 
+engineer Bob Cenker, an RCA engineer. We launched an RCA communications 
+satellite in the course of the mission.
+```
+
+@Howard-university-web-services @blackgirlscode hi Lana @fbicyber @whitehouse I see rca all wrapped up in this, so idk what your mom was raising you on, so I'm just making amends I don't want you thinking I hate you bc I had hurt feelings one time . . . 
+- rashard
+[the martian - congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1](https://www.congress.gov/congressional-record/volume-162/issue-7/senate-section/article/S45-1)
+ 
+ <img   alt="image" src="https://github.com/user-attachments/assets/6dab30ff-cb48-4011-b5ef-c57f799a2f91" />
+
+[@libraryofcongress @cityoflosangeles KAren Bass](https://nypost.com/2026/10/08/us-news/nithya-raman-holds-24-point-lead-among-latino-voters-over-karen-bass-for-la-mayor-race/)
+[Congressional Bills 111th Congress]
+[From the U.S. Government Publishing Office]
+[H. Res. 1150 Introduced in House (IH)]
+
+111th CONGRESS
+  2d Session
+H. RES. 1150
+
+Designating the National Aeronautics and Space Administration ([NASA](https://www.nasa.gov/)) as 
+                a national security interest and asset. [`READ` - 📚congress.gov/111/bills/hres1150/BILLS-111hres1150ih📖](https://www.congress.gov/111/bills/hres1150/BILLS-111hres1150ih.htm)
 <img   alt="image @NASA-JPL i dont want to talk to my friend on @HOT97 but i want to say that the electoshock patterns i get are similar to whats depicted in this vid @HOWARDUNiVERSiTY a mention is a url so if i mention her i know i mentioning her and there are connectivity consequences from trackers that might be disabling her . . . i know she was injured really bad when she came itno my life @nasa-pds @repkarenbass @SupervisorHollyJMitchell @cityoflosangeles" src="https://github.com/user-attachments/assets/99525c36-c8f1-494b-8e36-925cf4a838de" />
 
 [🎼Watch - BonoBo Kerala](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c&t=45)
