@@ -3,6 +3,12 @@ layout: default
 mathjax: true
 ---
 
+<img  alt="image" src="https://github.com/user-attachments/assets/2fd7b184-db57-4a00-a80a-848cd0d9903a" />
+
+![https://chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1](https://chromewebstore.google.com/detail/telepathy/fnfjbegccbjnepibnheamhcgidkapihk?pli=1)
+![https://lh3.googleusercontent.com/jdSvIVV5diPputS6qblLGvJkUdySqoodhem9hAEdHir6btTQzL2P9HK_skYKLOkMXuBQf8L6ODW2riLugxUZgxqD2jA=s1280-w1280-h800](https://lh3.googleusercontent.com/jdSvIVV5diPputS6qblLGvJkUdySqoodhem9hAEdHir6btTQzL2P9HK_skYKLOkMXuBQf8L6ODW2riLugxUZgxqD2jA=s1280-w1280-h800) 
+
+
 🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8) // [Bonobo - Kerala ](https://youtu.be/S0Q4gqBUs7c?list=RDS0Q4gqBUs7c) // [The Awakening · Ahmad Jamal ](https://youtu.be/L34b0ut8Loc?si=TkMybJcVNhqsHqCJ) // [Mayor and Nas sit down to discuss the past, present and future of hip hop in NYC](https://youtu.be/0XwqsCBgZWo)
 
 ---
