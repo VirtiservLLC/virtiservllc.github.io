@@ -3,6 +3,23 @@ layout: default
 mathjax: true
 ---
 
+# The [Lana](https://www.instagram.com/lanajharris/?hl=en) Rundown [@Nasa-JPL @eodis-nasa @deptofwar]
+Why Diddy’s Prison Release Date Just Got Pushed Back
+[`WATCH` - https://www.youtube.com/watch?v=ug_jB28_dDQ](https://www.youtube.com/watch?v=ug_jB28_dDQ)
+- [LanaJHarris @Howard-university-web-services](https://www.businesswire.com/news/home/20251223985439/en/ADDING-MULTIMEDIA-MediaCos-HOT-97-TV-Launches-Daily-Live-News-Show-for-the-First-Time-Dropping-January-2026) 
+<img  alt="image" src="https://github.com/user-attachments/assets/b7175df4-baf2-453a-87b4-e20361fb337f" />
+
+![https://mms.businesswire.com/media/20251223985439/en/2677466/4/P1211807.jpg](https://mms.businesswire.com/media/20251223985439/en/2677466/4/P1211807.jpg) 
+
+[NASA's Northrop Grumman Commercial Resupply Services 24 Departure](https://www.youtube.com/watch?v=IoL51xLkMSY)
+<img  alt="image" src="https://github.com/user-attachments/assets/5747b8a1-b649-4aa5-b36c-93b9e5e7211f" />
+
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/c46d8d33-3337-49ab-a2d5-f6c16934f924" />
+
+![https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
 [`WATCH` - youtube.com/@hot97/videos @Nasa-JPL @eodis-nasa](https://www.youtube.com/@hot97/videos)
 <img   alt="image" src="https://github.com/user-attachments/assets/37efe02a-5bab-42d1-8c5b-70a61dfb6630" />
 
