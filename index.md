@@ -7,6 +7,15 @@ mathjax: true
 
 --- 
 
+
+### Operation Save Skid Row Announcement @usdoj
+hi [@blackgirlscode @disney @hulu - `WATCH` - https://youtu.be/4ZooLsGPtVc?si=l5kA5VIXqoOik_7c](https://youtu.be/4ZooLsGPtVc?si=l5kA5VIXqoOik_7c) @netflix
+[`WATCH` - @ForAtlanta @CityOfLosAngeles @Nasa-jpl https://www.youtube.com/@usao_cdca](https://www.youtube.com/@usao_cdca) //// [`READ` Santa Clarita Man Agrees to Plead Guilty to Hacking Disney Employee’s Computer, Downloading Confidential Data from Company](https://www.justice.gov/usao-cdca/pr/santa-clarita-man-agrees-plead-guilty-hacking-disney-employees-computer-downloading)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4ZooLsGPtVc?si=KcelsggC3DOieMiK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<img  alt="image" src="https://github.com/user-attachments/assets/b619d027-a1ec-4b82-b0fd-d892138b3cc3" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/86d9eefd-f042-4f55-b717-37b32040e477" />
+
 ## LAPD CompSat
 [`MApping Software` - crimemapping.com/map/ca/losangeles](https://www.crimemapping.com/map/ca/losangeles)
 @doug-newman-nasa while results will vary @eodis-nasa @CityOfLosAngeles has [this crimemapping app @usgs @emit-sds](https://www.crimemapping.com/map/ca/losangeles) can we sell them some @landsat access ? like im trying to make some deals mr trump, im following my webinar orders @USSF-ORBiT @NASA-PDS and following @Code.mil guidelines @la-county-isd its free but i have to get a recipt! Like selling chocholate for @nasa! hi @CityOfSantaMonica @SaccOunty - [CompSat Division](https://www.lapdonline.org/office-of-the-chief-of-police/office-of-special-operations/detective-bureau/compstat-division/) /// [@CityOfLosAngeles is this legit? `https://github.com/lapd-devops`](https://github.com/lapd-devops)
