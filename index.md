@@ -7,6 +7,14 @@ mathjax: true
 
 --- 
 
+## @NASA's Fleet of Active Satellites (July 2025)
+Released Tuesday, July 22, 2025 [`Visualizations by:
+` - 
+_Kel Elkins_ svs.gsfc.nasa.gov/search/?people=Kel%20Elkins](https://svs.gsfc.nasa.gov/search/?people=Kel%20Elkins)
+@la-county-isd @nasa-jpl @CityOfLosangeles @foratlanta this is pretty much everything that my helpdesk role @eodis-nasa covers, [EarthData]() really just gave me the tools i was promised to do my martian meteroology work, i just hope we can flip the dead bus switch to the fail overs and thats working even if a lot of peoplewere not @deptofwar @whitehouse [`READ` - svs.gsfc.nasa.gov/5571/](https://svs.gsfc.nasa.gov/5571/)
+This visualization is a tour of the Solar System, showing all of NASA’s active satellites as of July 2025. It begins near Earth, highlighting satellites in orbit around the planet. The camera then pulls back to reveal satellites at the Moon, L1, and L2. A thin yellow line indicates the direction of the Sun, showing the spatial relationship between the Sun, Earth, and Lagrange points. The view expands to show the inner Solar System, then zooms in on Mars to highlight its active satellites. From there, the camera moves out and in toward Jupiter to show Juno, the only active satellite currently orbiting the planet. The tour continues to the edge of the Solar System, revealing NASA’s most distant active spacecraft: Voyager 1, Voyager 2, and New Horizons. The video ends by returning to Earth. This video can be looped.  [`CiTATiON` - svs.gsfc.nasa.gov/5571/](https://svs.gsfc.nasa.gov/5571/)
+
+[<video controls loading="lazy" poster="https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005571/nasa_full_fleet_July2025_still.00400_preview.jpg" src="https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005571/nasa_full_fleet_July2025_1080p60.mp4" />](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005571/nasa_full_fleet_July2025_1080p60.mp4)
 
 ### Operation Save Skid Row Announcement @usdoj
 hi [@blackgirlscode @disney @hulu - `WATCH` - https://youtu.be/4ZooLsGPtVc?si=l5kA5VIXqoOik_7c](https://youtu.be/4ZooLsGPtVc?si=l5kA5VIXqoOik_7c) @netflix
