@@ -3,9 +3,14 @@ layout: default
 mathjax: true
 ---
 
-🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) 
+🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [Aphex Twin - Selected Ambient Works 85-92](https://youtu.be/Xw5AiRVqfqk)
 
 --- 
+
+@doug-newman-nasa some of our mailers are on @aws so, im hotlinking this for my municipal overseers to see i logged in today but i notised the image is hosted @amazon, id like to know more about how we run our informaion architechture in this era @deptofwar i have always had issuse with @nasa and the way they do things @forAtlanta @blackgirlscode `https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg`
+
+ [Aphex Twin - Selected Ambient Works 85-92](https://youtu.be/Xw5AiRVqfqk)
+![https://upload.wikimedia.org/wikipedia/en/4/40/Aphex_Twin_logo.svg?utm_source=en.wikipedia.org&utm_campaign=index&utm_content=original](https://upload.wikimedia.org/wikipedia/en/4/40/Aphex_Twin_logo.svg?utm_source=en.wikipedia.org&utm_campaign=index&utm_content=original) 
 
 ![@doug-newman-nasa some of our mailers are on @aws so, im hotlinking this for my municipal overseers to see i logged in today but i notised the image is hosted @amazon, id like to know more about how we run our informaion architechture in this era @deptofwar i have always had issuse with @nasa and the way they do things @forAtlanta @blackgirlscode https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg](https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg) 
 <img   alt="image @la-county-isd @cityoflosangeles @USGS @nasa-jpl @Stateofcalifornia @foratlanta " src="https://github.com/user-attachments/assets/ed70473c-4602-442f-85b6-5c29ec0a1894" />
