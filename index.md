@@ -5,6 +5,9 @@ mathjax: true
 
 🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [RUN DMC - Peter Piper ](https://youtu.be/Sd5gFx001qg?si=XQmEpY1cYKu2otA8)
 
+[https://www.youtube.com/watch?v=3Z0kU428JSE](https://www.youtube.com/watch?v=3Z0kU428JSE)
+<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/4a1bb7f7-4a6b-46b6-8da9-830febff13fb" />
+
 [`WATCH` - @ESA  @nasa-jpl @podaac x.com/i/broadcasts/1DGLdZyZZpbGm](https://x.com/i/broadcasts/1DGLdZyZZpbGm)
 [@CityOfLosAngeles Karen Bass](https://mayor.lacity.gov/) I hope you got to [Hawthorne](https://www.facebook.com/SpaceXLite/) to see what Congressional paperwork the astro/Cosmo:naughts need. I checked [in](https://space-offshore.com/wp-content/uploads/2020/04/Dj3KurJUwAEQwra-1024x683.jpg) at [HomeLandSecurity @dhs-gov](https://www.ice.gov/field-office/los-angeles-field-office) downtown and announced we had a splashdown with 2 Russians [`WATCH` - @ESA  @nasa-jpl @podaac x.com/i/broadcasts/1DGLdZyZZpbGm](https://x.com/i/broadcasts/1DGLdZyZZpbGm)
 ![https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu](https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/default/public/2023-04/Tri_Color_Ribbon_6000x75_v2.png.webp?itok=10dtoKFu) /./ [SpaceX Dragon Recovery Program space-offshore.com/dragon-recovery/](https://space-offshore.com/dragon-recovery/) // [Astronauts splash down off Los Angeles coast after nearly 8 months in space @ktla @nbcnews](https://ktla.com/news/local-news/nasa-spacex-crew-12-splashdown-los-angeles-coast/) // [Dramatic moment SpaceX astronauts blast back to Earth before splashdown off SoCal - @NyPOST](https://nypost.com/2026/10/08/us-news/dramatic-spacex-astronauts-reentry-ahead-of-la-ocean-splashdown/)
