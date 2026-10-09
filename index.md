@@ -7,6 +7,25 @@ mathjax: true
 
 --- 
 
+## LAPD CompSat
+[`MApping Software` - crimemapping.com/map/ca/losangeles](https://www.crimemapping.com/map/ca/losangeles)
+@doug-newman-nasa while results will vary @eodis-nasa @CityOfLosAngeles has [this crimemapping app @usgs @emit-sds](https://www.crimemapping.com/map/ca/losangeles) can we sell them some @landsat access ? like im trying to make some deals mr trump, im following my webinar orders @USSF-ORBiT @NASA-PDS and following @Code.mil guidelines @la-county-isd its free but i have to get a recipt! Like selling chocholate for @nasa! hi @CityOfSantaMonica @SaccOunty - [CompSat Division](https://www.lapdonline.org/office-of-the-chief-of-police/office-of-special-operations/detective-bureau/compstat-division/) /// [@CityOfLosAngeles is this legit? `https://github.com/lapd-devops`](https://github.com/lapd-devops)
+<img  alt="image @doug-newman-nasa while results will vary @eodis-nasa @CityOfLosAngeles has this crimemapping app @usgs @emit-sds can we sell them some @landsat access ? like im trying to make some deals mr trump, im following my webinar orders @USSF-ORBiT @NASA-PDS and following @Code.mil guidelines @la-county-isd its free but i have to get a recipt! Like selling chocholate for @nasa! " src="https://github.com/user-attachments/assets/c152a015-56b6-4d6b-8f7e-96df24e6af70" />
+
+@nasa-jpl im sorry for cussing when i wake up [LAPD](https://www.crimemapping.com/map/ca/losangeles) has no protocol for a genocide victim, even after [Rodney King! @cityoflosangeles](https://youtu.be/uaotkHlHJwo?si=gY15KAsQZX0B-CK-)
+[DOD INSTRUCTION 2200.01 COMBATING TRAFFICKING IN PERSONS (CTIP) esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf)
+<img   alt="image" src="https://github.com/user-attachments/assets/6a554e6c-5dec-433d-be43-d1b9b451666a" />
+
+
+
+hi @deptofwar is @defenseDept still valid ? it say archived here @nasa-jpl @usgs @landsat 
+[ctip.defense.gov/](https://ctip.defense.gov/)
+![https://ctip.defense.gov/portals/12/Images/Home%20Carousel/new2/CTIP-carousel_2v1.png](https://ctip.defense.gov/portals/12/Images/Home%20Carousel/new2/CTIP-carousel_2v1.png) 
+[@deptOfwar youtube.com/@LAPDHQ](https://www.youtube.com/@LAPDHQ)
+![https://yt3.googleusercontent.com/jD2_lViz3m_vFaslmk7MBiZBefF_6BlJR1Nh-G2yMfWGM2g-3_eSu1X8Gxi8JAeEfUJTEIAv=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/jD2_lViz3m_vFaslmk7MBiZBefF_6BlJR1Nh-G2yMfWGM2g-3_eSu1X8Gxi8JAeEfUJTEIAv=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+![https://ctip.defense.gov/Portals/12/DOW-Seal%20(1).png](https://ctip.defense.gov/Portals/12/DOW-Seal%20(1).png) 
+
 @doug-newman-nasa some of our mailers are on @aws so, im hotlinking this for my municipal overseers to see i logged in today but i notised the image is hosted @amazon, id like to know more about how we run our informaion architechture in this era @deptofwar i have always had issuse with @nasa and the way they do things @forAtlanta @blackgirlscode `https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/thumbnails/image/USGS%20Logo%20Water%20background.jpg`
 
  [Aphex Twin - Selected Ambient Works 85-92](https://youtu.be/Xw5AiRVqfqk)
