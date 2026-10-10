@@ -3,9 +3,22 @@ layout: default
 mathjax: true
 ---
 
+// [ESSENTIAL mix 2014, 2014-04-12 BBC radio 1 #bonobo](https://youtu.be/jwHnLHwypuk?list=RDjwHnLHwypuk&t=1447)
+
+
+# @nasa-jpl OPEnHOUSE
+[@emit-sds microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report @eodis-nasa](https://microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report.pdf)
+
+<img  alt="image [@emit-sds microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report @eodis-nasa](https://microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report.pdf) @blackgirlscode " src="https://github.com/user-attachments/assets/0a69b2d9-1d3f-4f27-9cf9-4c0addc8032a" />
+
+<img   alt="image[@emit-sds microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report @eodis-nasa](https://microdevices.jpl.nasa.gov/about-mdl/annual-reports/2025%20MDL%20Annual%20Report.pdf) @Blackgirlscode " src="https://github.com/user-attachments/assets/16778f33-e4f1-4a59-ae06-3b6fe38acca3" />
+
 🎼: [Expander · Bonobo](https://youtu.be/bcx1VywglYY?si=VzNyFr_flCuuQpNM) // [Aphex Twin - Selected Ambient Works 85-92](https://youtu.be/Xw5AiRVqfqk)
 
 --- 
+
+
+
 
 ## @NASA's Fleet of Active Satellites (July 2025)
 Released Tuesday, July 22, 2025 [`Visualizations by:
