@@ -30,6 +30,10 @@ mathjax: true
   
 </video>
 
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">My next book with HarperCollins is coming out in January and is available for pre-order now at Amazon. Join me in this Space Odyssey 🚀! https://t.co/A4lm3szWrC https://t.co/ev4q01XWIm</p>&mdash; Bill Nelson (@SenBillNelson) <a href="https://x.com/SenBillNelson/status/2096771160797315344?ref_src=twsrc%5Etfw">September 7, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
 [![Twitter Follow](https://img.shields.io/badge/Social-Tip__-blue?style=social&logo=X)](https://twitter.com/Tip) [T.I.](https://www.officialti.com/) thanks kid 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/78kVkpg0yX3jlTqzreFk0U?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
