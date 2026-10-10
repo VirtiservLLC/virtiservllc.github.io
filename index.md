@@ -16,9 +16,12 @@ mathjax: true
 <iframe src="https://abc7.com/video/embed?pid=11064936" width="640" height="360" allow="encrypted-media" allowFullScreen frameBorder="0"></iframe>
 
 
-
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
 [`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/34ebf9fc-fb5f-494b-b3db-71531bd8c2d4" />
+
+
 
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
 
