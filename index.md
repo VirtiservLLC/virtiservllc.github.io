@@ -24,6 +24,11 @@ mathjax: true
 
 <img   alt="image" src="https://github.com/user-attachments/assets/34ebf9fc-fb5f-494b-b3db-71531bd8c2d4" />
 
+@thakasartukellyselassie6468
+[youtube.com/@rexrichardson](youtube.com/@rexrichardson) @rexrichardson hi i put some maps on my blogspace my bookkeeper @lanajharris and ther team #LatriceFitzpatric help keep safe *HELP* @NASAJPL @U.S.SpaceForce @RepKArenBass @SupervisorHollyJMitchell @SupervisorLindseyP.Horvath [github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md](github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md) there are some maps from @NOAASatellites , since i am in @NASA meteorology i have @noaaGov reasources in that pool @oceanexplorergov [@BLackGiRLScode](https://abc7.com/watch/live/)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/3ef48630-fcfb-4cee-97bd-f97b32009585" />
+
 <img   alt="image" src="https://github.com/user-attachments/assets/5883e8c5-4cad-4e37-991d-9902cb8e5768" />
 
 
