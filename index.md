@@ -12,8 +12,12 @@ mathjax: true
 
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
 [`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
-@cbs-news-data [Derived Motion Winds - `ANiMATED` @NOAAGOV @WEATHERGOV @NASA-JPL](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/DMW/GOES18-ABI-CONUS-DMW.gif)
+
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
+
+@cbs-news-data [Derived Motion Winds - `ANiMATED` @NOAAGOV @WEATHERGOV @NASA-JPL](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/DMW/GOES18-ABI-CONUS-DMW.gif)
+
+<img alt="G18_conus_DMW_12fr_20261010-1759" src="https://github.com/user-attachments/assets/abced596-4785-4deb-9da3-be893df2e4f3" />
 
 
 ### Southern California coastal communities brace for Tropical Storm Rachel impacts [`READ` - cbsnews.com/losangeles/news/southern-california-coastal-communities-tropical-storm-rachel-impacts/](https://www.cbsnews.com/losangeles/news/southern-california-coastal-communities-tropical-storm-rachel-impacts/)
