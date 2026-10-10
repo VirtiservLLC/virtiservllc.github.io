@@ -3,11 +3,28 @@ layout: default
 mathjax: true
 ---
 
+🎼: [Los Angeles: Critical Mass](https://youtu.be/Qbwm5Kguksw?list=RDQbwm5Kguksw&t=105)
 
-
+---
 
 
 # @nasa-jpl OPEnHOUSE
+
+
+![https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif @Deptofwar My BookKeeper(https://www.zola.com/registry/robandtricedominicanrepublic)'s sister LAna (https://www.instagram.com/reel/DGgwj0Ns_1n/?hl=en) is reporting that [Hon Pete Hegseth(https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) wants to livestream a Military Execution `Watch` - https://youtu.be/5vMA4XFqaRw?t=198](https://youtu.be/5vMA4XFqaRw?t=198) @deptofwar she is from Eritrea where its done in the public square, I think she is still recovering from that trauma, but i see where you coming from. If the globe has decided that that is the outcome of people to dangerous for people i dont know . . . people are terrified over covid parties @la-county-isd and bullying me on this issue, thats y war.gov mentions are so toxic, but they are stalking me and registering my urls themselvs so they are hurting themselves @CityOfLosAngeles ](https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif) 
+
+<img  alt="G18_sector_gwas_EXTENT3_12fr_20261010-1743 @Deptofwar [My BookKeeper](https://www.zola.com/registry/robandtricedominicanrepublic)'s sister [LAna](https://www.instagram.com/reel/DGgwj0Ns_1n/?hl=en) is reporting that [Hon Pete Hegseth](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) wants to livestream a Military Execution [`Watch` - https://youtu.be/5vMA4XFqaRw?t=198](https://youtu.be/5vMA4XFqaRw?t=198) @deptofwar she is from Eritrea where its done in the public square, I think she is still recovering from that trauma, but i see where you coming from. If the globe has decided that that is the outcome of people to dangerous for people i dont know . . . people are terrified over covid parties @la-county-isd and bullying me on this issue, thats y war.gov mentions are so toxic, but they are stalking me and registering my urls themselvs so they are hurting themselves @CityOfLosAngeles 
+" src="https://github.com/user-attachments/assets/5bacb8c7-9a14-4bff-ae23-d60f2b6577ba" />
+
+@Deptofwar [My BookKeeper](https://www.zola.com/registry/robandtricedominicanrepublic)'s sister [LAna](https://www.instagram.com/reel/DGgwj0Ns_1n/?hl=en) is reporting that [Hon Pete Hegseth](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) wants to livestream a Military Execution [`Watch` - https://youtu.be/5vMA4XFqaRw?t=198](https://youtu.be/5vMA4XFqaRw?t=198) @deptofwar she is from Eritrea where its done in the public square, I think she is still recovering from that trauma, but i see where you coming from. If the globe has decided that that is the outcome of people to dangerous for people i dont know . . . people are terrified over covid parties @la-county-isd and bullying me on this issue, thats y war.gov mentions are so toxic, but they are stalking me and registering my urls themselvs so they are hurting themselves @CityOfLosAngeles 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/01bfd943-8f27-4411-9bce-7a818989387f" />
+
+
+<img   alt="image @nasa-jpl @nasa-pds @Cityoflosangeles The Honorable Pete Hegseth is the secretary of war. He was sworn in on Jan. 25, 2025, as the 29th secretary of defense before the department's name was changed on Sept. 5, 2025.Hegseth was commissioned as an infantry officer in the U.S. Army National Guard after graduating from Princeton University in 2003. He participated in a number of active-duty deployments during his time in service, including operations in Guantanamo Bay, Iraq and Afghanistan. Hegseth also served in multiple staff positions in the National Guard.Hegseth's military awards include two Bronze Star Medals, the Joint Commendation Medal, two Army Commendation Medals, the Combat Infantryman Badge (CIB) and the Expert Infantryman Badge (EIB). He has authored five books, including the New York Times best-seller The War on Warriors (2024). https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/ " src="https://github.com/user-attachments/assets/3adbca00-b18d-480d-a0e6-40dba337f83b" />
+
+![https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG](https://media.defense.gov/2025/Jan/28/2003633313/825/780/0/250127-D-TT977-1051.JPG)
+
 
 @WHiTEHOUSE [January 6: A Date Which Will Live in Infamy whitehouse.gov/j6/](https://www.whitehouse.gov/j6/) @CitYOFLoSANGELES @SACCOUNTY @NASA-GiSS
 <img  alt="image" src="https://github.com/user-attachments/assets/842d4687-46e6-43bf-84dd-f96ca8873859" />
