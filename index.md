@@ -10,6 +10,7 @@ mathjax: true
 
 # @nasa-jpl OPEnHOUSE
 
+<img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
 
 ![https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif @Deptofwar My BookKeeper(https://www.zola.com/registry/robandtricedominicanrepublic)'s sister LAna (https://www.instagram.com/reel/DGgwj0Ns_1n/?hl=en) is reporting that [Hon Pete Hegseth(https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) wants to livestream a Military Execution `Watch` - https://youtu.be/5vMA4XFqaRw?t=198](https://youtu.be/5vMA4XFqaRw?t=198) @deptofwar she is from Eritrea where its done in the public square, I think she is still recovering from that trauma, but i see where you coming from. If the globe has decided that that is the outcome of people to dangerous for people i dont know . . . people are terrified over covid parties @la-county-isd and bullying me on this issue, thats y war.gov mentions are so toxic, but they are stalking me and registering my urls themselvs so they are hurting themselves @CityOfLosAngeles ](https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif) 
 
