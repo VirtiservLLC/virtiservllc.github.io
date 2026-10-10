@@ -4,7 +4,7 @@ mathjax: true
 ---
 
 
-// [ESSENTIAL mix 2014, 2014-04-12 BBC radio 1 #bonobo](https://youtu.be/jwHnLHwypuk?list=RDjwHnLHwypuk&t=1447) // [Blessed (feat. Kendrick Lamar) · ScHoolboy Q](https://youtu.be/ZZbSN1hKuoA?list=RDZZbSN1hKuoA)
+// [ESSENTIAL mix 2014, 2014-04-12 BBC radio 1 #bonobo](https://youtu.be/jwHnLHwypuk?list=RDjwHnLHwypuk&t=1447)
 
 
  <svg class="gradient-text" id="headerMargins" width="50%" height="50%" viewBox="0 0 508.204 141.732" xml:space="preserve" xmlns="http://www.w3.org/2000/svg">
@@ -12,6 +12,13 @@ mathjax: true
 
 
 # @nasa-jpl OPEnHOUSE
+
+
+
+##### NASA 1970s SPACE COLONIZATION
+DRIVERLESS VEHICLES, PIONEER PROBES, OBLIQUE WING X-PLANE 68734
+<iframe src="https://archive.org/embed/68734-nasa-space-colonization-vwr" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
 #### Voyager Online Data Volumes
 @emit-sds @nasa-giss plz fwd to @nasa-jpl `openhouse` [https://pds-imaging.jpl.nasa.gov/volumes/voyager.html](https://pds-imaging.jpl.nasa.gov/volumes/voyager.html)
 [`Watch` - Voyagers’ Mission to the Outer Solar System (1977 Vintage Video) @nasa](https://youtu.be/uJpJ79AxrzI)
