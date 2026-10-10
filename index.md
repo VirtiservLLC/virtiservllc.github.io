@@ -10,7 +10,16 @@ mathjax: true
 
 # @nasa-jpl OPEnHOUSE
 
+##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
+[`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
+@cbs-news-data [Derived Motion Winds - `ANiMATED` @NOAAGOV @WEATHERGOV @NASA-JPL](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/DMW/GOES18-ABI-CONUS-DMW.gif)
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
+
+
+### Southern California coastal communities brace for Tropical Storm Rachel impacts [`READ` - cbsnews.com/losangeles/news/southern-california-coastal-communities-tropical-storm-rachel-impacts/](https://www.cbsnews.com/losangeles/news/southern-california-coastal-communities-tropical-storm-rachel-impacts/)
+![https://assets1.cbsnewsstatic.com/hub/i/r/2026/10/10/415fc509-68f7-4323-a218-301a2d1333ea/thumbnail/640x360/fb4a73818e05f83786b752071caa2292/gettyimages-2299454585.jpg](https://assets1.cbsnewsstatic.com/hub/i/r/2026/10/10/415fc509-68f7-4323-a218-301a2d1333ea/thumbnail/640x360/fb4a73818e05f83786b752071caa2292/gettyimages-2299454585.jpg) 
+
+![https://yt3.googleusercontent.com/KzBmPOtFk6swwp1mh2NHS47NH7-Ni6Xs60K_U3fzIJSK5d6WJrxnnmTc3WWXxrOmU0ilS9kvb-k=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/KzBmPOtFk6swwp1mh2NHS47NH7-Ni6Xs60K_U3fzIJSK5d6WJrxnnmTc3WWXxrOmU0ilS9kvb-k=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
 
 ![https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif @Deptofwar My BookKeeper(https://www.zola.com/registry/robandtricedominicanrepublic)'s sister LAna (https://www.instagram.com/reel/DGgwj0Ns_1n/?hl=en) is reporting that [Hon Pete Hegseth(https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) wants to livestream a Military Execution `Watch` - https://youtu.be/5vMA4XFqaRw?t=198](https://youtu.be/5vMA4XFqaRw?t=198) @deptofwar she is from Eritrea where its done in the public square, I think she is still recovering from that trauma, but i see where you coming from. If the globe has decided that that is the outcome of people to dangerous for people i dont know . . . people are terrified over covid parties @la-county-isd and bullying me on this issue, thats y war.gov mentions are so toxic, but they are stalking me and registering my urls themselvs so they are hurting themselves @CityOfLosAngeles ](https://cdn.star.nesdis.noaa.gov/FLOATER/EP182026/GEOCOLOR/20262831510-20262832040-ABI-EP182026-GEOCOLOR-1000x1000.gif) 
 
