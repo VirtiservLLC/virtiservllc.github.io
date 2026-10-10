@@ -17,7 +17,7 @@ mathjax: true
 [`Watch` - Voyagers’ Mission to the Outer Solar System (1977 Vintage Video) @nasa](https://youtu.be/uJpJ79AxrzI)
 @nasa-pds voyager is [beaming in data](https://eyes.nasa.gov/apps/dsn-now/dsn.html) in [Madrid](https://www.mdscc.nasa.gov/) ! 
 [Protesters Camp in Madrid to Demand Solutions to Spain’s Housing Crisis ](https://youtu.be/-urWaCifkgU)
-@cityOfLosAngeles @La-County-isd @longbeachinnovationteam all kinds of things slow us down that you guys would never know about either! @DeptOfWar @USNAVY hi @blackgirlscode [Vintage NASA: Voyager’s 1990 ‘Family Portrait’ News Conference](https://youtu.be/aty-PMtS7Dc?t=15) // [VOYAGER 1 - Launch (1977/09/05)](https://youtu.be/3LoWEncvTLQ)
+@cityOfLosAngeles @La-County-isd @longbeachinnovationteam all kinds of things slow us down that you guys would never know about either! @DeptOfWar @USNAVY hi @blackgirlscode [Vintage NASA: Voyager’s 1990 ‘Family Portrait’ News Conference](https://youtu.be/aty-PMtS7Dc?t=15) // [VOYAGER 1 - Launch (1977/09/05)](https://youtu.be/3LoWEncvTLQ) // [planetarydata.jpl.nasa.gov/img/data/voyager/VGISS_0005/](https://planetarydata.jpl.nasa.gov/img/data/voyager/VGISS_0005/)
 <img   alt="image" src="https://github.com/user-attachments/assets/e97047e3-e953-464d-b861-d9f4d1a5a085" />
 
 
