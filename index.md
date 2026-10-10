@@ -16,9 +16,21 @@ mathjax: true
 <iframe src="https://abc7.com/video/embed?pid=11064936" width="640" height="360" allow="encrypted-media" allowFullScreen frameBorder="0"></iframe>
 
 
-
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
-[`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
+[`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK)  
+
+
+@cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA) [ @nasa-jpl @nasa-giss @nasa-develop @eodis-nasa @longbeachinnovationteam @cityoflosangeles @la-county-isd](https://youtu.be/-NN2Bh4IrM8?t=1862)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/34ebf9fc-fb5f-494b-b3db-71531bd8c2d4" />
+
+@thakasartukellyselassie6468
+[youtube.com/@rexrichardson](youtube.com/@rexrichardson) @rexrichardson hi i put some maps on my blogspace my bookkeeper @lanajharris and ther team #LatriceFitzpatric help keep safe *HELP* @NASAJPL @U.S.SpaceForce @RepKArenBass @SupervisorHollyJMitchell @SupervisorLindseyP.Horvath [github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md](github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md) there are some maps from @NOAASatellites , since i am in @NASA meteorology i have @noaaGov reasources in that pool @oceanexplorergov [@BLackGiRLScode](https://abc7.com/watch/live/)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/3ef48630-fcfb-4cee-97bd-f97b32009585" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/5883e8c5-4cad-4e37-991d-9902cb8e5768" />
+
 
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
 
