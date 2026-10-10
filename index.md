@@ -11,6 +11,10 @@ mathjax: true
 # @nasa-jpl OPEnHOUSE
 
 
+Search Phrase: CODE TEXTPENAL CODE - PEN
+[PART 1. OF CRIMES AND PUNISHMENTS 25 - 680.4 Part 1 enacted 1872](https://www.egattorneys.com/california-penal-code-647-j4)
+TITLE 15. MISCELLANEOUS CRIMES [626 - 653.75]  (@CityOfLosAngeles @Deptofwar Title 15 enacted 1872. )  
+
 
 # The. Martian. 2015. EXTENDED. 1080p. BRRip.x 264. AAC ETRG
 @nasa-jpl i was thinking that [Matt Damon](https://www.imdb.com/name/nm0000354/) was teasing me bc [playboy](https://www.youtube.com/watch?v=cvsUojE83b8) stole all my belongings when [my wife left me...](https://www.essence.com/tags/erika-kelly/)
