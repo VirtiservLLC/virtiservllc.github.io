@@ -16,7 +16,7 @@ mathjax: true
 @nasa-jpl i was thinking that [Matt Damon](https://www.imdb.com/name/nm0000354/) was teasing me bc [playboy](https://www.youtube.com/watch?v=cvsUojE83b8) stole all my belongings when [my wife left me...](https://www.essence.com/tags/erika-kelly/)
 
 // 
-[![Twitter Follow](https://img.shields.io/badge/Social-RealMattDamon__-blue?style=social&logo=X)](https://twitter.com/RealMattDamon) // [![Twitter Follow](https://img.shields.io/badge/Social-SenBillNelson__-blue?style=social&logo=X)](https://twitter.com/SenBillNelson) [YANDEX](https://yandex.com/images/search?from=tabbar&img_url=https%3A%2F%2Fwww.naplesnews.com%2Fgcdn%2Fauthoring%2Fauthoring-images%2F2024%2F02%2F13%2FUSAT%2F72580923007-xxx-nasa-tab-phobos.jpg%3Fcrop%3D3514%2C1977%2Cx0%2Cy748%26width%3D3200%26height%3D1801%26format%3Dpjpg%26auto%3Dwebp&lr=200&p=4&pos=23&rpt=simage&text=mars%20mosaic%20caltech)
+[![Twitter Follow](https://img.shields.io/badge/Social-RealMattDamon__-blue?style=social&logo=X)](https://twitter.com/RealMattDamon) // [![Twitter Follow](https://img.shields.io/badge/Social-SenBillNelson__-blue?style=social&logo=X)](https://twitter.com/SenBillNelson) [YANDEX](https://yandex.com/images/search?from=tabbar&img_url=https%3A%2F%2Fwww.naplesnews.com%2Fgcdn%2Fauthoring%2Fauthoring-images%2F2024%2F02%2F13%2FUSAT%2F72580923007-xxx-nasa-tab-phobos.jpg%3Fcrop%3D3514%2C1977%2Cx0%2Cy748%26width%3D3200%26height%3D1801%26format%3Dpjpg%26auto%3Dwebp&lr=200&p=4&pos=23&rpt=simage&text=mars%20mosaic%20caltech) // [![Twitter Follow](https://img.shields.io/badge/Social-donaldglover__-blue?style=social&logo=X)](https://twitter.com/donaldglover)
 
 
 <video controls preload="none" 
