@@ -19,7 +19,7 @@ mathjax: true
 
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
 [`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK)  
-<img   alt="G19_fd_Fe171_60fr_20261010-1815" src="https://github.com/user-attachments/assets/bc8d69b6-10d4-4019-8bfa-1a2f50f80445" />
+
 
 
 @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA) [ @nasa-jpl @nasa-giss @nasa-develop @eodis-nasa @longbeachinnovationteam @cityoflosangeles @la-county-isd](https://youtu.be/-NN2Bh4IrM8?t=1862)
@@ -32,6 +32,7 @@ mathjax: true
 
 ![https://yt3.googleusercontent.com/KzBmPOtFk6swwp1mh2NHS47NH7-Ni6Xs60K_U3fzIJSK5d6WJrxnnmTc3WWXxrOmU0ilS9kvb-k=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/KzBmPOtFk6swwp1mh2NHS47NH7-Ni6Xs60K_U3fzIJSK5d6WJrxnnmTc3WWXxrOmU0ilS9kvb-k=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
 
+<img   alt="G19_fd_Fe171_60fr_20261010-1815" src="https://github.com/user-attachments/assets/bc8d69b6-10d4-4019-8bfa-1a2f50f80445" />
 
 @thakasartukellyselassie6468
 [youtube.com/@rexrichardson](youtube.com/@rexrichardson) @rexrichardson hi i put some maps on my blogspace my bookkeeper @lanajharris and ther team #LatriceFitzpatric help keep safe *HELP* @NASAJPL @U.S.SpaceForce @RepKArenBass @SupervisorHollyJMitchell @SupervisorLindseyP.Horvath [github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md](github.com/VirtiservLLC/virtiservllc.github.io/blob/master/index.md) there are some maps from @NOAASatellites , since i am in @NASA meteorology i have @noaaGov reasources in that pool @oceanexplorergov [@BLackGiRLScode](https://abc7.com/watch/live/)
