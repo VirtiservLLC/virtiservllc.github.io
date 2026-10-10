@@ -10,6 +10,10 @@ mathjax: true
 
 # @nasa-jpl OPEnHOUSE
 
+
+@ktla i keep waiting on an embed, give me a link and i will write a modular bit for it - @rashardikelly @nasa-pds @nasa-jpl @forAtlanta [ktla.com/on-air/live-streaming/](https://ktla.com/on-air/live-streaming/)
+<img   alt="image" src="https://github.com/user-attachments/assets/9d39122a-a007-4c7c-bb23-0a5e9624f785" />
+
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
 [`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
 
