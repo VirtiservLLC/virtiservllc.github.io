@@ -17,10 +17,14 @@ mathjax: true
 
 
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
-[`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK) on @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA)
+[`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK)  
+
+
+@cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA) [ @nasa-jpl @nasa-giss @nasa-develop @eodis-nasa @longbeachinnovationteam @cityoflosangeles @la-county-isd](https://youtu.be/-NN2Bh4IrM8?t=1862)
 
 <img   alt="image" src="https://github.com/user-attachments/assets/34ebf9fc-fb5f-494b-b3db-71531bd8c2d4" />
 
+<img   alt="image" src="https://github.com/user-attachments/assets/5883e8c5-4cad-4e37-991d-9902cb8e5768" />
 
 
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
