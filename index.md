@@ -30,8 +30,28 @@ mathjax: true
   
 </video>
 
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">My next book with HarperCollins is coming out in January and is available for pre-order now at Amazon. Join me in this Space Odyssey 🚀! https://t.co/A4lm3szWrC https://t.co/ev4q01XWIm</p>&mdash; Bill Nelson (@SenBillNelson) <a href="https://x.com/SenBillNelson/status/2096771160797315344?ref_src=twsrc%5Etfw">September 7, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
 [![Twitter Follow](https://img.shields.io/badge/Social-Tip__-blue?style=social&logo=X)](https://twitter.com/Tip) [T.I.](https://www.officialti.com/) thanks kid 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/78kVkpg0yX3jlTqzreFk0U?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+[<img src="https://science.nasa.gov/wp-content/uploads/2024/02/mars-perseverance-si1-0045-0670932474-015ecm-n0031416srlc07021-000085j-e1720460405906.png" alt="waymo" />](https://science.nasa.gov/wp-content/uploads/2024/02/mars-perseverance-si1-0045-0670932474-015ecm-n0031416srlc07021-000085j-e1720460405906.png)
+
+[<img src="https://science.nasa.gov/wp-content/uploads/2024/02/perseverance-parachute-puzzle.png" alt="waymo" />](https://science.nasa.gov/wp-content/uploads/2024/02/perseverance-parachute-puzzle.png)
+
+![3d Glasses](https://upload.wikimedia.org/wikipedia/commons/a/a0/3d_glasses_red_cyan.svg) 
+
+[Anaglyph 3D is the stereoscopic 3D effect achieved](https://en.wikipedia.org/wiki/Anaglyph_3D) by means of encoding each eye's image using filters of different (usually chromatically opposite) colors, typically red and cyan.
+# [Index of /PDS/EXTRAS/ANAGLYPH/ESP/ORB](https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/PSP/ORB_010800_010899/PSP_010836_1885_ESP_081663_1885/)
+[<img src="https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/PSP/ORB_010800_010899/PSP_010836_1885_ESP_081663_1885/PSP_010836_1885_ESP_081663_1885_RED.browse.png" alt="mars surface" />](https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/PSP/ORB_010800_010899/PSP_010836_1885_ESP_081663_1885/PSP_010836_1885_ESP_081663_1885_RED.browse.png)
+
+
+[<img src="https://upload.wikimedia.org/wikipedia/commons/8/82/Dolby_3D.png" alt="Evidence of water found on Mars" />](https://upload.wikimedia.org/wikipedia/commons/8/82/Dolby_3D.png)
+
+[<img src="https://www.google.com/logos/doodles/2015/evidence-of-water-found-on-mars-5652760466817024.2-hp2x.gif" alt="Evidence of water found on Mars" />](https://www.google.com/logos/doodles/2015/evidence-of-water-found-on-mars-5652760466817024.2-hp2x.gif)
 
 # PHOBOS
 ![phobos](https://avatars.mds.yandex.net/get-mpic/4334579/img_id4537117976329318750.jpeg/orig)
