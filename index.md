@@ -15,9 +15,9 @@ mathjax: true
 
 <iframe src="https://abc7.com/video/embed?pid=11064936" width="640" height="360" allow="encrypted-media" allowFullScreen frameBorder="0"></iframe>
 
-
 ##### Tropical Storm Rachel preparations in Long Beach discussed by city officials
 [`WATCH` - youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK](https://www.youtube.com/live/-NN2Bh4IrM8?si=LKuXgBi8DysLBWoK)  
+<img   alt="G19_fd_Fe171_60fr_20261010-1815" src="https://github.com/user-attachments/assets/bc8d69b6-10d4-4019-8bfa-1a2f50f80445" />
 
 
 @cbsinteractive [youtube.com/@CBSLA](https://www.youtube.com/@CBSLA) [ @nasa-jpl @nasa-giss @nasa-develop @eodis-nasa @longbeachinnovationteam @cityoflosangeles @la-county-isd](https://youtu.be/-NN2Bh4IrM8?t=1862)
@@ -29,8 +29,18 @@ mathjax: true
 
 <img   alt="image" src="https://github.com/user-attachments/assets/3ef48630-fcfb-4cee-97bd-f97b32009585" />
 
+@nbcnews @usgs [Precipitation MAp]( https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=bbox-%5B-119.10704%2C32.66468%2C-117.28107%2C35.16873%5D&view=%7B%22basemap%22%3A%22EsriUsaTopo%22%2C%22bounds%22%3A%22-119.10704426280608%2C32.664681957102374%2C-117.2810671360799%2C35.16873405315705%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Afalse%2C%22checkbox%22%3A%220%2C7%2C10%2C12%2C21%2C22%2C23%22%2C%22hiddenSubgroup%22%3A%22%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A1%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D ) 
+<img   alt="image" src="https://github.com/user-attachments/assets/01ce5d06-d7b0-41ff-9cc0-ad66ead68ab3" />
+
+
+[<video controls loading="lazy" poster="https://sdo.gsfc.nasa.gov/assets/img/latest/latest_2048_0193.jpg" src="https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4" />](https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4)
+
+
+
+
 <img   alt="image" src="https://github.com/user-attachments/assets/5883e8c5-4cad-4e37-991d-9902cb8e5768" />
 
+<img   alt="image" src="https://github.com/user-attachments/assets/d6e5938b-8092-4621-a962-0546372cd855" />
 
 <img alt="G18_sector_gwas_Dust_12fr_20261010-1747" src="https://github.com/user-attachments/assets/fd2d2ffb-de72-4426-a8ed-109baeb6daba" />
 
