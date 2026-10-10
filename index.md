@@ -9,6 +9,88 @@ mathjax: true
 
 # @nasa-jpl OPEnHOUSE
 
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/422507901&color=%23b7ff00&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/realniggarealshit" title="IMTHEHIGHPRIESTESS" target="_blank" style="color: #cccccc; text-decoration: none;">IMTHEHIGHPRIESTESS</a> · <a href="https://soundcloud.com/realniggarealshit/kashdoll-intro" title="KashDoll (Intro)" target="_blank" style="color: #cccccc; text-decoration: none;">KashDoll (Intro)</a></div>
+
+{% highlight ruby %} 
+[Verse]
+[Intro]
+So everyones been wondering why
+Kash Doll's been rapping on everyone else beats
+And why she's been riding other people waves
+And, um, why she's killing all these remixes?
+It's because I can't put my own original music out, okay?
+It's because I signed myself in a hoe ass contract
+I did that and now I'm trapped inside of a fucking dollhouse
+And I wanna get out of this shit
+No way to escape the dollhouse
+But you know what?
+Timing is everything and I think God has perfect timing
+So right now, I'm just gonna get on every fucking beat there is
+{% endhighlight %}
+
+![donald](https://media.newyorker.com/photos/5ff762f7515a1fd85f89c326/16:9/w_2559,h_1439,c_limit/Marantz-CapitolMob.jpg)
+[<img src="https://rollcall.com/app/uploads/2024/01/trump_BC_042_010621.jpg" alt="DonaldORweLL" />](https://rollcall.com/app/uploads/2024/01/trump_BC_042_010621.jpg)
+[<img src="https://media.cnn.com/api/v1/images/stellar/prod/210205104923-104-january-6-capitol-riots.jpg?q=x_27,y_174,h_1652,w_2937,c_crop/w_1280" alt="flag" />](https://media.cnn.com/api/v1/images/stellar/prod/210205104923-104-january-6-capitol-riots.jpg?q=x_27,y_174,h_1652,w_2937,c_crop/w_1280)
+[<img src="https://media.cnn.com/api/v1/images/stellar/prod/211105100656-02-jan-6-riot.jpg?q=w_3000,h_2001,x_0,y_0,c_fill" alt="" />](https://media.cnn.com/api/v1/images/stellar/prod/211105100656-02-jan-6-riot.jpg?q=w_3000,h_2001,x_0,y_0,c_fill)
+[<img src="https://media.cnn.com/api/v1/images/stellar/prod/220104155104-january-6-insurrection-anniversary-walk-up.jpg?q=w_1160,c_fill/f_webp" alt="" />](https://media.cnn.com/api/v1/images/stellar/prod/220104155104-january-6-insurrection-anniversary-walk-up.jpg?q=w_1160,c_fill/f_webp)
+
+
+[January 6 U.S. Capitol attack riot, Washington, D.C., U.S. [2021]](https://www.britannica.com/event/January-6-U-S-Capitol-attack) January 6 U.S. Capitol attack, storming of the United States Capitol on January 6, 2021, by a mob of supporters of Republican Pres. Donald J. Trump. The attack disrupted a joint session of Congress convened to certify the results of the presidential election of 2020, which Trump had lost to his Democratic opponent, Joe Biden. Because its object was to prevent a legitimate president-elect from assuming office, the attack was widely regarded as an insurrection or attempted coup d’état. The Federal Bureau of Investigation (FBI) and other law-enforcement agencies also considered it an act of domestic terrorism. For having given a speech before the attack in which he encouraged a large crowd of his supporters near the White House to march to the Capitol and violently resist Congress’s certification of Biden’s victory—which many in the crowd then did—Trump was impeached by the Democratic-led House of Representatives for “incitement of insurrection” (he was subsequently acquitted by the Senate). [cite - BritannicA](https://www.britannica.com/event/January-6-U-S-Capitol-attack)
+[Planning and Execution Timeline for the National Guard’s Involvement in the January 6, 2021 Violent Attack at the U.S. Capitol](https://www.defense.gov/News/Releases/Release/Article/2467051/planning-and-execution-timeline-for-the-national-guards-involvement-in-the-janu/)
+
+[<img src="https://ichef.bbci.co.uk/news/800/cpsprodpb/1404E/production/_116389918_capitol_floorplan_map2_640-nc.png.webp" alt="in surrection" />](https://ichef.bbci.co.uk/news/800/cpsprodpb/1404E/production/_116389918_capitol_floorplan_map2_640-nc.png.webp)
+
+[<img src="https://image.cnbcfm.com/api/v1/image/106820239-1609969463086-gettyimages-1230455296-AFP_8YA8KY.jpeg?v=1610113433" alt="in surrection" />](https://image.cnbcfm.com/api/v1/image/106820239-1609969463086-gettyimages-1230455296-AFP_8YA8KY.jpeg?v=1610113433)
+[<img src="https://platform.vox.com/wp-content/uploads/sites/2/chorus/uploads/chorus_asset/file/22223110/GettyImages_1230453292.jpg?quality=90&strip=all&crop=0%2C2.8443683409437%2C100%2C94.311263318113&w=2400" alt="" />](https://platform.vox.com/wp-content/uploads/sites/2/chorus/uploads/chorus_asset/file/22223110/GettyImages_1230453292.jpg?quality=90&strip=all&crop=0%2C2.8443683409437%2C100%2C94.311263318113&w=2400)
+[<img src="https://ichef.bbci.co.uk/news/800/cpsprodpb/55C6/production/_116385912_senate_chamber_pic640.png.webp" alt="in surrection" />](https://ichef.bbci.co.uk/news/800/cpsprodpb/55C6/production/_116385912_senate_chamber_pic640.png.webp) [Phones of top Pentagon officials were wiped of Jan. 6 messages](https://www.washingtonpost.com/national-security/2022/08/02/pentagon-jan-6-phones-wiped/) The DOD is the latest part of the federal government to have deleted official phone communications relevant to investigations into the events of the Jan. 6 attack on the Capitol [Transcripts Show President Trump's Directives to Pentagon Leadership to "Keep January 6 Safe" Were Deliberately Ignored -house.gov](https://cha.house.gov/2024/9/transcripts-show-president-trump-s-directives-to-pentagon-leadership-to-keep-january-6-safe-were-deliberately-ignored) [Pentagon, D.C. officials point fingers at each other over Capitol riot response](https://www.nbcnews.com/news/crime-courts/pentagon-d-c-officials-point-fingers-each-other-over-capitol-n1253547) [Three Years Since the Jan. 6 Attack on the Capitol](https://www.justice.gov/usao-dc/36-months-jan-6-attack-capitol-0) [7 hours, 700 arrests, 1 year later: The Jan. 6 Capitol attack, by the numbers - ABC7](https://abc7.com/jan-6-insurrection-us-capitol-riot/11428976/) [Capitol riots: A visual guide to the storming of Congress](https://www.bbc.com/news/world-us-canada-55575260) [Fact check: Five enduring lies about the Capitol insurrection - CNN - Brian Dale and Marshall Cohen](https://www.cnn.com/2022/01/04/politics/fact-check-capitol-insurrection-january-6-lies/index.html) [The January 6th insurrection in photos - rollcall.com](https://rollcall.com/2024/01/05/the-january-6th-insurrection-in-photos/) [How Networked Incitement Fueled the January 6 Capitol Insurrection - scientific american](https://www.scientificamerican.com/article/jan-6-was-an-example-of-networked-incitement/) [U.S. CAPITOL RIOT - iOwA CapiTal diSpatch](https://iowacapitaldispatch.com/tag/u-s-capitol-riot/) [What Trump Said to Supporters on Jan. 6 Before Their Capitol Riot - WSJ](https://www.wsj.com/articles/what-trump-said-to-supporters-on-jan-6-before-their-capitol-riot-11610498173) Democrats, seeking to impeach the president, say his comments incited the crowd to storm the building while lawmakers were certifying Biden’s election
+
+![Kash Doll: Brat Mail](https://media.pitchfork.com/photos/5aac18d09fe2d82be24601a8/16:9/w_1280,c_limit/Brat%20Mail%20Kash%20Doll.jpg)
+
+# About Kash Doll and Me
+NasaJPL, I dont know what she is going by at the moment but she is my post erika wife forever girlfriend surrounding that. The name I was given origionally was Vanessa Walker. We were little kids here from africa that got kidnapped and moved east. She is still in some sort of human trafficking situation. To me she is a really important person and as some of you know my energy towards those in [UpperUnix] administration know how i look up to you. Its isolated bc im learning from you. She is similar. But she has a lot of identities and worst case I want you guys to know i never did any fruad with her. But know thats whats required of her. The character Normani, looks like an attempt for the girls to substitute for each other bc i still get her confused with Erika when she has the [LightComplexion](https://media.pitchfork.com/photos/5aac18d09fe2d82be24601a8/16:9/w_1280,c_limit/Brat%20Mail%20Kash%20Doll.jpg) bc they share similar features. Im also afraid bc she is ethiopian and i have not seen her dress traditionally in a long time... She still talkes to me, but she plays [minecraft](https://youtu.be/K4vtrzcqyg0?si=Bc-Alnd9YbOu90In) and communicates differnt from other girls
+
+<embed width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/411406869&color=%2329f247&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true" />
+
+[<img src="https://media.pitchfork.com/photos/5aac18d09fe2d82be24601a8/1:1/w_800,h_800,c_limit/Brat%20Mail%20Kash%20Doll.jpg" alt="kash doll : Brat MAil />](https://media.pitchfork.com/photos/5aac18d09fe2d82be24601a8/1:1/w_800,h_800,c_limit/Brat%20Mail%20Kash%20Doll.jpg)
+
+## Intro (Brat Mail) [LyricS](https://genius.com/Kash-doll-intro-brat-mail-lyrics)
+
+{% highlight ruby %} 
+[Verse]
+Look, I be exploring the foreigns with more power than stars
+On my new new shit, like my name is Rashaad
+And my punchlines seasoned plenty minds like it's time
+So, if he ever tell you he ain't feelin' me, he lying'
+Shout out to me, all on BET
+I'm a very rich chick, on my Nene Leakes
+I'm a boss, every move gotta come through me
+Murder broads in my minks
+May they rest in peace
+And I'm still the top chick
+Any bitch think I drop dick get higher than Mariah
+And she like a five octave
+Stop it, please stop it
+Blowing money
+All in Neiman's in there Diddy bopping
+And you know I came to murder it
+My city watchin'
+I'm so humble, I'ma front like I don't do this often
+It's Kash Doll, bow down, and kiss the ring
+Soon as this paperwork done
+I'm touching everything
+A murder scene
+
+[Outro]
+Haha
+Yeah, that way
+The doll way
+{% endhighlight %}
+
+
+[The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck)
+
+
 <svg class="gradient-text" id="headerMargins" width="50%" height="50%" viewBox="0 0 508.204 141.732" xml:space="preserve" xmlns="http://www.w3.org/2000/svg">
 <path d="M91.991 104.699c1.576 5.961 4.119 8.266 8.613 8.266 4.659 0 7.102-2.799 7.102-8.266V3.2h29.184v101.499c0 14.307-1.856 20.506-9.11 27.762-5.228 5.229-14.871 9.271-27.047 9.271-9.837 0-19.25-3.256-25.253-9.27-5.263-5.273-8.154-10.689-12.672-27.764L44.9 37.033c-1.577-5.961-4.119-8.265-8.613-8.265-4.66 0-7.103 2.798-7.103 8.265v101.5H0v-101.5C0 22.727 1.857 16.527 9.111 9.271 14.337 4.044 23.981 0 36.158 0c9.837 0 19.25 3.257 25.253 9.27 5.263 5.273 8.154 10.689 12.672 27.764zm386.047 33.834L444.334 33.096c-.372-1.164-.723-2.152-1.263-2.811-.926-1.127-2.207-1.719-3.931-1.719-1.723 0-3.004.592-3.931 1.719-.539.658-.891 1.646-1.262 2.811l-33.703 105.437h-30.167l36.815-115.177c1.918-6 4.66-11.094 8.139-14.488C421.002 3.047 428.038 0 439.141 0s18.14 3.047 24.109 8.867c3.479 3.395 6.221 8.488 8.14 14.488l36.814 115.177zm-149.16 0c19.12 0 28.446-4.062 35.814-11.389 8.153-8.105 12.053-16.973 12.053-30.213 0-11.699-4.283-22.535-10.804-29.019-8.526-8.479-19.116-11.151-36.384-11.151l-24.187-.001c-9.242 0-12.925-1.117-15.839-3.98-2.001-1.964-2.939-4.885-2.939-8.328 0-3.559.857-7.074 3.303-9.475 2.171-2.131 5.13-3.109 10.816-3.109h69.903V3.2H306.05c-19.12 0-28.445 4.063-35.814 11.389-8.152 8.105-12.053 16.972-12.053 30.212 0 11.701 4.283 22.536 10.804 29.019 8.527 8.479 19.116 11.152 36.384 11.152l24.188.002c9.242 0 12.925 1.115 15.839 3.979 2.001 1.965 2.939 4.885 2.939 8.328 0 3.559-.857 7.074-3.302 9.475-2.172 2.131-5.131 3.109-10.817 3.109h-72.094l-27.651-86.509c-1.918-6-4.66-11.094-8.139-14.488C220.363 3.047 213.327 0 202.224 0s-18.14 3.047-24.108 8.867c-3.48 3.395-6.221 8.488-8.139 14.488l-36.815 115.177h30.166l33.704-105.437c.372-1.164.723-2.152 1.263-2.811.926-1.127 2.208-1.719 3.931-1.719s3.004.592 3.931 1.719c.54.658.891 1.646 1.262 2.811l33.704 105.437z" fill="#1E90FF"/></svg>
          
