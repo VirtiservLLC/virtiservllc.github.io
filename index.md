@@ -9,7 +9,11 @@ mathjax: true
 
 
 # @nasa-jpl OPEnHOUSE
-
+### SEX TRAFFICKING IN [ATLANTA](https://www.atlantapd.org/) [GEORGIA](https://www.atlantaga.gov/government/departments/city-planning/historic-preservation/property-district-information/georgia-state-capitol)❗️
+@nasa-jpl this is why im late [`WATCH` - https://youtu.be/UoZJYTRZgpc?si=bgSVT0G3U9spRvVu](https://youtu.be/UoZJYTRZgpc?si=bgSVT0G3U9spRvVu)
+I ALMOST GOT KIDNAPPED❗️(story time😱🤬)ROSE POCAHONTAS 
+@CityofLosAngeles @ForAtlanta @blackgirlscode
+<img  alt="image" src="https://github.com/user-attachments/assets/4e944dbc-6c48-4bfa-97f2-204c225247d8" />
 
 Search Phrase: CODE TEXTPENAL CODE - PEN
 [PART 1. OF CRIMES AND PUNISHMENTS 25 - 680.4 Part 1 enacted 1872](https://www.egattorneys.com/california-penal-code-647-j4)
