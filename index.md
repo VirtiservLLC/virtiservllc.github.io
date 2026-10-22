@@ -24,7 +24,7 @@ mathjax: true
 [`WATCH` - https://youtu.be/pltXs4LTU9s?t=276](https://youtu.be/pltXs4LTU9s?t=276)
 <img alt="image" src="https://github.com/user-attachments/assets/76ac1f03-a588-45b1-9a46-36d48d59a750" />
 
-
+[Atari Jaguar - Alien vs Predator (World)](https://www.retrogames.cc/jaguar-games/alien-vs-predator-world.html)
 U.S. Central Command Civilian Harm Report
  [@cityoflosangeles @FEMA _KarenbASS_ @LA-County-isd](https://www3.centcom.mil/civiliancasualtyreporting)
  re violence against fathers
